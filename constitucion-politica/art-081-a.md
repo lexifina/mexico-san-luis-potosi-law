@@ -1,0 +1,12 @@
+(REFORMADO, P.O. 7 DE SEPTIEMBRE DE 1992)
+ART. 81.- A.- La ley organizará el ministerio público del Estado, cuyos funcionarios serán nombrados y removidos libremente por el Ejecutivo del mismo, debiendo estar presididos por un procurador general, el que deberá llenar los mismos requisitos exigidos para ser magistrado del Supremo Tribunal de Justicia.
+Estará a cargo del ministerio público del Estado la persecución ante los tribunales, de todos los delitos del orden común, y, por lo mismo, a él le corresponderá solicitar las órdenes de aprehensión contra los reos; buscar y presentar las pruebas que acrediten la responsabilidad de éstos; hacer que los juicios se sigan con toda regularidad para que la administración de justicia sea pronta y expedita; pedir la aplicación de las penas e intervenir en todos los negocios que la ley determinare.
+El procurador general intervendrá personalmente en todos los negocios en que el Estado fuese parte, así como en todo asunto judicial en que se encuentre afectado el interés público o el de aquel. En los demás casos en que debe intervenir el ministerio público del Estado, el procurador general podrá hacerlo por sí o por medio de sus agentes.
+El procurador general será el consejero jurídico del Gobierno. Tanto él como sus agentes se someterán estrictamente a las disposiciones de la ley, siendo responsables de toda falta, omisión o violación en que incurran con motivo de sus funciones.
+B.- La Legislatura Local establecerá la Comisión Estatal de Derechos Humanos que otorga el orden jurídico mexicano, que conocerá de las quejas en contra de conductas activas u omisivas, de naturaleza administrativa, provenientes de cualquier autoridad o cometidas por servidores públicos en ejercicio de sus funciones, que violen los derechos de esa naturaleza reconocidos por el orden jurídico mexicano, con excepción de los del Poder Judicial.
+La Comisión, podrá formular recomendaciones públicas autónomas, no vinculatorias; así como denuncias y quejas ante las autoridades respectivas, pudiendo actuar de oficio o a petición de parte.
+La Comisión no será competente y estará impedida para conocer de asuntos electorales, jurisdiccionales y laborales e interpretación de disposiciones legales.
+La Ley determinará la organización, integración, nombramientos y atribuciones de la Comisión.
+(REFORMADO, P.O. 4 DE NOVIEMBRE DE 1943)
+CAPITULO DECIMO OCTAVO
+Del municipio libre
