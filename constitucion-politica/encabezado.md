@@ -1,7 +1,5 @@
 CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI
+N. DE E. LA QUINCUAGESIMA CUARTA LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI APROBO EL DECRETO No. 657, QUE REFORMA LA CONSTITUCION POLITICA VIGENTE EN EL ESTADO, MODIFICANDO DE MANERA SUSTANCIAL EL TEXTO QUE A LA FECHA TENIA DICHO ORDENAMIENTO, PRESENTANDOSE POR TAL MOTIVO SOLO EL TEXTO APROBADO Y PUBLICADO EN EL PERIODICO OFICIAL DEL ESTADO EL 20 DE NOVIEMBRE DE 1996.
 Constitución publicada en la Quinta Epoca, Tomo III, Periódicos Oficiales números 1, 2, 3, 4, 5, 6, 7, 8, 9, 10 y 11, de fechas: 2, 5, 9, 12, 16, 19, 23, 26 y 30 de enero; 2 y 6 de febrero de 1918, respectivamente.
 EL C. GENERAL JUAN BARRAGAN, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes, sabed:
 El XXV Congreso del Estado Libre y Soberano de San Luis Potosí, conforme al artículo 5º. del Decreto de 22 de Marzo del corriente año, expedido por el C. Primer Jefe del Ejército Constitucionalista, reformando la última parte del artículo 7º. del Plan de Guadalupe, y al artículo 3º. del Decreto de Convocatoria del 30 del mismo mes, del Gobierno Provisional, ha tenido a bien expedir la siguiente Constitución Política del Estado Libre y Soberano de San Luis Potosí, que reforma la del 27 de julio de 1861.
-(REFORMADO, P.O. 4 DE NOVIEMBRE DE 1943)
-CAPITULO PRIMERO
-De los habitantes del Estado
