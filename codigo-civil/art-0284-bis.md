@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 31 DE OCTUBRE DE 1998)
-ART. 284 BIS.- Los integrantes de la familia tienen derecho a que los demás miembros les respeten su integridad física y psíquica, para lograr su sano desarrollo y plena incorporación y participación en el núcleo familiar y social. Al efecto, contará con la asistencia y protección de las instituciones públicas, de conformidad con lo dispuesto en las leyes.
+(REFORMADO, P.O. 3 DE OCTUBRE DE 2000)
+ART. 284 BIS.- La familia es un grupo social, permanente, compuesto por un conjunto de personas unidas por el vínculo del matrimonio o concubinato, por los parentescos de consanguinidad, de afinidad o civil, que proporciona a sus miembros satisfacción de necesidades, estabilidad y formación.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
+ART. 284.3.- Los integrantes de la familia tienen derecho a que los demás miembros respeten su integridad física y psíquica, de manera que no se afecten su sano desarrollo individual y su plena incorporación al núcleo social. Al efecto, contará con la asistencia y protección de las instituciones públicas y privadas en la forma y términos que prevengan las leyes aplicables.

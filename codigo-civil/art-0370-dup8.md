@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
+ART. 370.7.- El juez que apruebe la adopción plena remitirá copia de las diligencias respectivas al oficial del Registro Civil del lugar, para que levante el acta correspondiente. La resolución judicial que la apruebe contendrá la orden a dicho funcionario, para que cancele en su caso el acta de nacimiento del adoptado, así como para que levante acta de nacimiento en la que figuren como padres los adoptantes y como hijo el adoptado y demás datos que se requieren conforme a la ley, sin hacer mención sobre la adopción.
+Tratándose de la adopción plena, el Registro Civil se abstendrá de proporcionar información sobre los antecedentes de la familia de origen del adoptado.
