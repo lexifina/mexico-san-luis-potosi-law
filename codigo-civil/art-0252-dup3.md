@@ -1,5 +1,7 @@
 (ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 252.2.- Para que exista jurídicamente el concubinato, es necesario que la manifestación de voluntad se prolongue de manera pública y permanente:
-I.- Durante cinco años ininterrumpidos;
-II.- Durante dos años si la unión se produjo por medio de rito indígena o religioso de carácter público; o
-III.- Desde el nacimiento del primer hijo, si esto ocurre antes de los plazos anteriores, siempre y cuando la cohabitación se hubiere dado al menos por un año.
+ART. 252.9.- La disolución del concubinato faculta a los concubinos a reclamarse mutuamente alimentos.
+Atendiendo a las circunstancias del caso, el Juez competente tendrá facultades para fijar el tiempo en que deban otorgarse y el monto de los mismos, considerando que la concubina o concubinario, no tengan bienes o no estén en aptitud de trabajar. Esta acción deberá ejercerse dentro de los seis meses siguientes a la ruptura del concubinato.
+En los casos de disolución del concubinato, el concubino inocente tendrá derecho a alimentos, mientras no contraiga matrimonio o establezca una nueva relación concubinaria y viva honestamente. Solo gozará de este derecho cuando no cuente con recursos, esté imposibilitado para trabajar o no tenga bienes propios para subsistir.
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 3 DE OCTUBRE DE 2000)
+CAPITULO VIII
+Del concubinato

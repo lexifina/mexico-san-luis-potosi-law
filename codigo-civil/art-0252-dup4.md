@@ -1,5 +1,3 @@
 (ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 252.3.- Se presumen hijos de los concubinos:
-I.- Los nacidos después de iniciada la unión libre, y
-II.- Los nacidos dentro de los trescientos días de terminado el concubinato.
-Los hijos nacidos de concubinato tendrán los mismos derechos y obligaciones como si lo fueran de matrimonio.
+ART. 252.1.- El concubinato es la unión de hecho de un sólo hombre y una sola mujer, libres de impedimentos de parentesco y ligamen matrimonial, con el propósito tácito de integrar una familia a través de la cohabitación doméstica y sexual, el respeto y protección recíprocos, así como la eventual perpetuación de la especie.
+Si una misma persona establece varias uniones del tipo antes descrito, en ninguna se reputará concubinato.
