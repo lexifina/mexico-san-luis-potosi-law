@@ -10,3 +10,4 @@ Dado en el Palacio del Poder Ejecutivo del Estado de San Luis Potosí, a los och
 J. BARRAGAN.
 El Srio. General de Gobierno,
 JOSE GONZALEZ.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE CONSTITUCION.
