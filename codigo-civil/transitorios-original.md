@@ -16,3 +16,4 @@ Dado en el Palacio del Poder Ejecutivo del Estado, a los veintisiete días del m
 GONZALO N. SANTOS
 El Secretario General de Gobierno.
 Lic. LUIS NOYOLA.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
