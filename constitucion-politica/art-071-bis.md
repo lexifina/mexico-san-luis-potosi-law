@@ -22,5 +22,5 @@ VIII.- De los asuntos cuya resolución esté reservada al Tribunal de lo Contenc
 IX.- De todos los asuntos de carácter administrativo que se susciten entre las autoridades Estatales y Municipales así como Organismos Descentralizados con funciones de autoridad y los particulares.
 La Ley Orgánica determinará la organización del Tribunal de lo Contencioso Administrativo para el despecho de los negocios de su competencia, así como el procedimiento y términos en que ha de ejercer sus facultades.
 (REFORMADO, P.O. 4 DE NOVIEMBRE DE 1943)
-CAPITULO DECIMO CUARTO
-De los jueces de primera instancia
+CAPITULO DECIMO TERCERO
+Del Poder Judicial
