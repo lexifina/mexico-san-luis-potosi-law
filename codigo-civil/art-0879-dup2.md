@@ -1,0 +1,1 @@
+ART. 879.- Si alguno perforase pozo o hiciere obras de captación de aguas subterráneas en su propiedad, aunque por ésto disminuya el agua del abierto en fundo ajeno, no está obligado a indemnizar; pero debe tenerse en cuenta lo dispuesto en el artículo 875.
