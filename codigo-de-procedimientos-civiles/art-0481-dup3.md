@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 9 DE MAYO DE 1997)
+ART. 481.2.- Procederá el juicio hipotecario sin necesidad de que el contrato esté inscrito en el Registro Público de la Propiedad, cuando:
+I.- El documento base de la acción tenga carácter de título ejecutivo;
+II.- El bien se encuentre inscrito a favor del demandado; y
+III.- No exista embargo o gravamen en favor de tercero, inscrito, cuando menos, noventa días anteriores al de la presentación de la demanda.
