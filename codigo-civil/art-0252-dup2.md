@@ -1,7 +1,3 @@
 (ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 252.9.- La disolución del concubinato faculta a los concubinos a reclamarse mutuamente alimentos.
-Atendiendo a las circunstancias del caso, el Juez competente tendrá facultades para fijar el tiempo en que deban otorgarse y el monto de los mismos, considerando que la concubina o concubinario, no tengan bienes o no estén en aptitud de trabajar. Esta acción deberá ejercerse dentro de los seis meses siguientes a la ruptura del concubinato.
-En los casos de disolución del concubinato, el concubino inocente tendrá derecho a alimentos, mientras no contraiga matrimonio o establezca una nueva relación concubinaria y viva honestamente. Solo gozará de este derecho cuando no cuente con recursos, esté imposibilitado para trabajar o no tenga bienes propios para subsistir.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 3 DE OCTUBRE DE 2000)
-CAPITULO VIII
-Del concubinato
+ART. 252.1.- El concubinato es la unión de hecho de un sólo hombre y una sola mujer, libres de impedimentos de parentesco y ligamen matrimonial, con el propósito tácito de integrar una familia a través de la cohabitación doméstica y sexual, el respeto y protección recíprocos, así como la eventual perpetuación de la especie.
+Si una misma persona establece varias uniones del tipo antes descrito, en ninguna se reputará concubinato.
