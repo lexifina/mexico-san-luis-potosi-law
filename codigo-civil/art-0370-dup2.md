@@ -1,2 +1,3 @@
 (ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 370.1.- Las instituciones privadas a quienes en los términos de la Ley de Asistencia Social del Estado les sean conferidos menores para promover su adopción, contarán con un Consejo Interno de Adopciones en el que deberá participar el Ministerio Público y la autoridad rectora de la asistencia social en el Estado, quien vigilará la aplicación de las políticas que sobre la materia establezca ese organismo.
+ART. 370.10.- Esta adopción se regirá por los tratados internacionales suscritos y ratificados por el Estado Mexicano y, en lo conducente, por las disposiciones de este Código. Las adopciones internacionales siempre serán plenas.
+En el procedimiento de adopción internacional en igualdad de circunstancias, se dará preferencia a adoptantes mexicanos sobre los extranjeros.

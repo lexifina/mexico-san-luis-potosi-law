@@ -1,5 +1,7 @@
 (ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 252.8.- El concubinato se termina por las siguientes causas:
-I.- Por acuerdo mutuo entre las partes;
-II.- Por abandono del domicilio común, por parte de uno de los concubinos, si la separación es injustificada y se prolonga por más de seis meses sin ánimo de reconciliación. Durante éste plazo, el concubinato sigue produciendo sus efectos, y
-III.- Por muerte de alguno de los concubinos.
+ART. 252.9.- La disolución del concubinato faculta a los concubinos a reclamarse mutuamente alimentos.
+Atendiendo a las circunstancias del caso, el Juez competente tendrá facultades para fijar el tiempo en que deban otorgarse y el monto de los mismos, considerando que la concubina o concubinario, no tengan bienes o no estén en aptitud de trabajar. Esta acción deberá ejercerse dentro de los seis meses siguientes a la ruptura del concubinato.
+En los casos de disolución del concubinato, el concubino inocente tendrá derecho a alimentos, mientras no contraiga matrimonio o establezca una nueva relación concubinaria y viva honestamente. Solo gozará de este derecho cuando no cuente con recursos, esté imposibilitado para trabajar o no tenga bienes propios para subsistir.
+(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 3 DE OCTUBRE DE 2000)
+CAPITULO VIII
+Del concubinato
