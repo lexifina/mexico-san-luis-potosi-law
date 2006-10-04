@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE SEPTIEMBRE DE 2006)
+ARTICULO 127 QUINQUIES. Los responsables de la realización de los planes y programas, obras o actividades reguladas en este Capítulo, deberán sujetarse a las condiciones y limitaciones que señale la autorización respectiva; su incumplimiento será motivo para que la Secretaría, previo el procedimiento de verificación respectivo, determine la suspensión de la misma y por ende, la suspensión de las actividades.
