@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2006)
+ARTICULO 36 QUATER. El impuesto local sobre tenencia o uso de vehículos se pagará mediante declaración, en la forma oficial aprobada, dentro de los tres primeros meses de cada año; conjuntamente con los derechos de control vehicular, en las oficinas recaudadoras de la Secretaría de Finanzas, instituciones de crédito, oficinas o establecimientos autorizados..
+Las autoridades competentes no autorizarán registros de vehículos, matrículas, altas o bajas, cambio de placas, o efectuarán la renovación de los mismos, si el tenedor o usuario del vehículo no comprueba el pago del impuesto o, en su caso, acredita que se encuentra liberado de esta obligación.
