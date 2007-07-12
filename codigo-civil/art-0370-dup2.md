@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 370.1.- Las instituciones privadas a quienes en los términos de la Ley de Asistencia Social del Estado les sean conferidos menores para promover su adopción, contarán con un Consejo Interno de Adopciones en el que deberá participar el Ministerio Público y la autoridad rectora de la asistencia social en el Estado, quien vigilará la aplicación de las políticas que sobre la materia establezca ese organismo.
+(REFORMADO, P.O. 12 DE JUNIO DE 2007)
+ART. 370.1.- Las instituciones privadas autorizadas a quienes en los términos de la Ley de Asistencia Social para el Estado y Municipios de San Luis Potosí, les sean conferidos menores para promover su adopción, contarán con un Consejo Interno de Adopciones, en el que deberá participar el Ministerio Público, y la autoridad rectora de asistencia social en el Estado, quien vigilará la aplicación de las políticas que sobre la materia establezca ese organismo.
