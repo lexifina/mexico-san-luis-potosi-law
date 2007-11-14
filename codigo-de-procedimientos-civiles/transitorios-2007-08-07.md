@@ -1,6 +1,6 @@
 P.O. 7 DE AGOSTO DE 2007.
 ARTICULO PRIMERO. El artículo Primero del presente Decreto entrará en vigor el día uno de octubre del año 2007, previa publicación en el Periódico Oficial del Estado.
-Los artículos Segundo, Tercero, Cuarto y Quinto de este Decreto, entrarán en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Los artículos Segundo, Tercero, Cuarto y Quinto de este Decreto, entrarán en vigor al di a siguiente de su publicación en el Periódico Oficial del Estado.
 El artículo Sexto del presente Decreto una vez publicado en el órgano oficial respectivo, entrará en vigor el día que adquiera plena vigencia el Decreto Legislativo No. 197, publicado en el Periódico Oficial del Estado el 10 de julio de 2007.
 ARTICULO SEGUNDO. El Ejecutivo del Estado emitirá el Reglamentó de la ley que se expide, dentro de los noventa días siguientes a la entrada en vigor del artículo Primero de este Decreto.
 ARTICULO TERCERO. El Sistema a que se refiere la Ley que se expide, se integrará dentro de los sesenta días siguientes a la entrada en vigor del artículo Primero del presente Decreto.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE NOVIEMBRE DE 2007)
+ART. 373 BIS.- La prueba pericial en genética molecular del ácido desoxirribonucleico, o prueba de ADN, es la prueba que se realiza en muestras de tejido celular, por lo general de sangre, mediante un procedimiento científico que permite establecer y verificar el vínculo de parentesco por consanguinidad entre el progenitor o progenitora, y su hijo o hija.
