@@ -16,3 +16,4 @@ C.P. Marcelo de los Santos Fraga
 El Secretario General de Gobierno
 LIC. Alfonso Castillo Machuca
 (Rúbrica)
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
