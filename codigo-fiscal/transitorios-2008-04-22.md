@@ -1,0 +1,3 @@
+P.O. 22 DE ABRIL DE 2008.
+PRIMERO. El presente Decreto entrará en vigencia al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Todos los asuntos relacionados con créditos fiscales derivados de sanciones pecuniarias, resarcitorias, e indemnizaciones, impuestas por la Contaduría Mayor de Hacienda del Estado o la Auditoria Superior del Estado, a servidores públicos estatales, municipales y de cualquier otro ente público, que tenga la Secretaría de Finanzas para su cobro, o que se estén substanciando mediante cualquier procedimiento o recurso, deberá ésta última transferírselas a la Auditoria Superior del Estado, dentro de los treinta días siguientes a la entrada en vigencia de este Decreto, para su correspondiente seguimiento y substanciación.
