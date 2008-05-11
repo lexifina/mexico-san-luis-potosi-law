@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 10 DE MAYO DE 2008)
+ARTÍCULO 31 BIS.- La Contraloría Interna es el órgano del Consejo Estatal Electoral y de Participación Ciudadana, con autonomía técnica y de gestión, para decidir sobre su funcionamiento; que tiene encomendada la fiscalización de los ingresos y egresos del Consejo; así como las funciones de control y vigilancia de los servidores públicos del mismo, excepción hecha de los consejeros ciudadanos.
+El titular de la Contraloría será electo, previa convocatoria pública, por el Congreso del Estado, con el voto de las dos terceras partes de sus miembros presentes, y sólo podrá ser removido por las causas y en la forma que establezca la Ley Electoral del Estado.
