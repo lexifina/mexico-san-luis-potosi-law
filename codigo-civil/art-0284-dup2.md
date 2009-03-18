@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 284.1.- El Estado promoverá el vínculo del matrimonio como medio para la organización y desarrollo social de la familia.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 284.1.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)

@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 284 BIS.- La familia es un grupo social, permanente, compuesto por un conjunto de personas unidas por el vínculo del matrimonio o concubinato, por los parentescos de consanguinidad, de afinidad o civil, que proporciona a sus miembros satisfacción de necesidades, estabilidad y formación.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 284 BIS.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)

@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 370.3.- En el caso del último párrafo del artículo que antecede, el juez podrá dispensar la ratificación del consentimiento de las personas que debieran otorgarlo, si por alguna razón existiere grave dificultad para recabarlo y esto resulte en perjuicio del menor.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 370.3.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)

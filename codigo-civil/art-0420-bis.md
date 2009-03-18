@@ -1,4 +1,2 @@
-(ADICIONADO, P.O. 27 DE SEPTIEMBRE DE 2007)
-ART. 420 BIS.- Toda persona mayor de edad capaz, puede designar al tutor o tutores que deberán encargarse de su persona y, en su caso, de su patrimonio, como al curador en previsión de encontrarse en los supuestos del artículo 410 fracciones II, III y IV de este Código.
-La designación de tutor o curador debe hacerse ante notario e inscribirse en escritura pública, y deberá contener expresamente, todas las reglas a las que se sujetará el tutor o curador. Esta designación es revocable en cualquier momento mediante las mismas formalidades.
-La persona designada no está obligada a aceptar el cargo, aunque no tenga excusa para ello, pero si lo acepta, deberá permanecer en él un año cuando menos, pasado el cual podrá solicitar al juez que se le releve del mismo.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 420 BIS.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)

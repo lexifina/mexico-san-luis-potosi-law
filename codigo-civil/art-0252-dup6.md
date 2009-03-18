@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 252.5.- Si el concubinato se prolonga hasta la muerte de uno de sus miembros, el concubino supérstite tendrá derecho a heredar en la misma proporción y condiciones de un cónyuge.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 252.5.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)

@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 7 DE AGOSTO DE 2007)
-ART. 404 BIS.- La patria potestad podrá ser limitada cuando el que la ejerce incurra en conductas de violencia familiar previstas en el artículo 284.5 de este Código, en contra de las personas sobre las cuales la ejerza.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 404 BIS.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)

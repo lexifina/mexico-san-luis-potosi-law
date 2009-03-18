@@ -1,3 +1,2 @@
-(REFORMADO, P.O. 12 DE JUNIO DE 2007)
-ART. 370.2.- Cuando el menor sea entregado a una institución de asistencia privada autorizada, para que ésta promueva su adopción, además de observase las formalidades establecidas en el artículo anterior, el consentimiento debe referirse inequívocamente a la adopción plena, y deberá manifestarse ante el juez competente, quien informará al declarante de manera que no le queden dudas sobre el contenido y alcance del acto, con asistencia del Ministerio Público.
-El consentimiento dado por escrito a la institución privada autorizada, deberá ser presentado en el procedimiento de adopción, a fin de que el juez certifique la voluntad de quien lo otorga, debiendo ratificar el mismo, ante la presencia judicial.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 370.2.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)

@@ -1,3 +1,2 @@
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2000)
-ART. 370.5.- Con vistas a la futura adopción plena y con audiencia del Ministerio Público, podrá ser declarado por el juez el estado de abandono de un menor, cuando los padres o quien ejerza la patria potestad del mismo se hubieran comportado con manifiesto desinterés hacia él, en términos que afecten su salud o seguridad, si conservaren tal conducta durante por lo menos tres meses anteriores a la solicitud de la declaración. La declaración se hará como medio preparatorio del juicio.
-Tendrán legitimación activa para requerir la declaración del estado de abandono, quienes hubieren tenido al menor bajo su guarda.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CODIGO.
+ART. 370.5.- (DEROGADO, P.O. 18 DE DICIEMBRE DE 2008)
