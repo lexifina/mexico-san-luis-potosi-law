@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2008)
 ARTICULO 67 QUATER. La Secretaría de Salud del Estado establecerá los programas que permitan que las personas integrantes de los pueblos y comunidades indígenas de la Entidad, accedan de forma efectiva a los servicios de salud que establece la presente Ley; asimismo, implementará mecanismos para que pueda aprovecharse la medicina tradicional, apoyando las propuestas que en esta materia promuevan las comunidades indígenas, a través de sus representantes y autoridades propias.
 En los hospitales generales y regionales del Estado que traten población indígena, deberá haber dentro del área de trabajo social, cuando menos un traductor de las lenguas náhuatl, tenek y xi'oi, conforme a la población indígena que se atienda, a fin de que los indígenas, que no hablen suficientemente el español, puedan recibir la atención que requieren de manera óptima.

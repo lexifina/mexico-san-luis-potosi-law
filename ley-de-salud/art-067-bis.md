@@ -1,3 +1,3 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2008)
 ARTICULO 67 BIS. Se reconoce a la medicina tradicional indígena, como el conjunto de sistemas de atención a la salud, que tiene sus raíces en los conocimientos sobre la salud y la enfermedad que los diferentes pueblos y comunidades indígenas y rurales han acumulado a través de su historia, y que ha incorporado elementos provenientes de otras medicinas, como la medicina antigua española, la medicina africana y, en menor medida, la medicina occidental.
