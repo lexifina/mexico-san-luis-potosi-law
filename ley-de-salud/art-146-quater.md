@@ -1,0 +1,13 @@
+(ADICIONADO, P.O. 10 DE NOVIEMBRE DE 2011)
+ARTÍCULO 146 QUATER. Para los efectos del Programa Nacional para la Prevención y Tratamiento de la Farmacodependencia se entiende por:
+I. Atención médica: al conjunto de servicios médicos que se proporcionan a la persona, con el fin de proteger, promover y restaurar su salud;
+II. Consumidor: persona que consume o utilice estupefacientes o psicotrópicos y que no presente signos ni síntomas de dependencia;
+III. Detección temprana: estrategia de prevención secundaria que tiene como propósito identificar en una fase inicial el consumo de narcóticos, a fin de aplicar medidas terapéuticas de carácter médico, psicológico y social lo más temprano posible;
+IV. Farmacodependencia: conjunto de fenómenos de comportamiento, cognoscitivos y fisiológicos, que se desarrollan luego del consumo repetido de estupefacientes o psicotrópicos;
+V. Farmacodependiente: persona que presenta algún signo o síntoma de dependencia a estupefacientes o psicotrópicos;
+VI. Farmacodependiente en recuperación: persona que está en tratamiento para dejar de utilizar narcóticos, y está en un proceso de superación de la farmacodependencia;
+VII. Investigación en materia de farmacodependencia: construcción de las bases científicas para la creación de políticas públicas y tratamientos adecuados para los diversos tipos y niveles de adicción, cuyo objeto es determinar las características y tendencias del problema, así como su magnitud e impacto en lo individual, familiar y colectivo; con absoluto respeto a los derechos humanos;
+VIII. Narcóticos: los estupefacientes, psicotrópicos y demás sustancias o vegetales que determinen, la Ley General de Salud, los convenios y tratados internacionales de observancia obligatoria en México, y las demás disposiciones legales aplicables en la materia;
+IX. Prevención: conjunto de acciones dirigidas a evitar o reducir el consumo de narcóticos, a disminuir situaciones de riesgo y limitar los daños asociados al consumo de dichas sustancias;
+X. Suspensión de la farmacodependencia: proceso mediante el cual el farmacodependiente participa en la superación de su farmacodependencia con el apoyo del entorno comunitario en la identificación y solución de problemas comunes que provocaron la farmacodependencia, y
+XI. Tratamiento: conjunto de acciones que tienen por objeto conseguir la abstinencia o, en su caso, la reducción del consumo de narcóticos, reducir los riesgos y daños que implican el uso y abuso de dichas sustancias, abatir los padecimientos asociados al consumo, e incrementar el grado de bienestar físico, mental y social, tanto del que usa, abusa o depende de esas sustancias, como de su familia.
