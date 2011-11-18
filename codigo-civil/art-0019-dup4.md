@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 4 DE MAYO DE 2002)
+(REFORMADO PRIMER PÁRRAFO, P.O. 4 DE MAYO DE 2002)
 ART. 19.3.- No estará permitido el cambio de nombre a persona alguna, salvo en los siguientes casos:
 (ADICIONADA, P.O. 3 DE OCTUBRE DE 2000)
 I.- Cuando el nombre propio puesto a una persona le cause afrenta;
