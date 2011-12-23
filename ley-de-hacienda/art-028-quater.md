@@ -1,3 +1,3 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, P.O. 19 DE DICIEMBRE DE 2009)
 ARTICULO 28 QUATER. La base para el cálculo y determinación del impuesto será la que resulte mayor entre el precio pactado o valor declarado y el valor catastral del inmueble. Para efecto de determinar la base del impuesto deberá atenderse al valor que arroje el avalúo catastral con una antigüedad no mayor de seis meses a partir de la fecha en que se formalice la operación.
