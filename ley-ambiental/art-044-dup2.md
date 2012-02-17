@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 23 DE JULIO DE 2011)
 ARTICULO 44 QUINQUE. El Programa Estatal de Acción ante el Cambio Climático deberá incluir:
 I. Las políticas estatales y su congruencia con las políticas nacionales sobre cambio climático y protección de la capa de ozono;

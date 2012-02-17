@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE FEBRERO DE 2012)
+ARTICULO 134 BIS. La SEGAM difundirá, a través de los medios de comunicación electrónicos y de impresión masiva, la ubicación de estaciones de transferencia de desechos electrónicos como equipo de cómputo, televisiones, hornos de microondas, videograbadoras, estéreos, fotocopiadoras, equipos de fax, teléfonos fijos y celulares, aparatos de audio y video, discos duros, chips, memorias, y otros de esta índole.
