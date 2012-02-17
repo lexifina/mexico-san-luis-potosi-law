@@ -1,5 +1,4 @@
 (ADICIONADO, P.O. 9 DE MAYO DE 1997)
-ART. 481.2.- Procederá el juicio hipotecario sin necesidad de que el contrato esté inscrito en el Registro Público de la Propiedad, cuando:
-I.- El documento base de la acción tenga carácter de título ejecutivo;
-II.- El bien se encuentre inscrito a favor del demandado; y
-III.- No exista embargo o gravamen en favor de tercero, inscrito, cuando menos, noventa días anteriores al de la presentación de la demanda.
+ART. 481.1.- Se tramitará en la vía extraordinaria, todo juicio hipotecario que tenga por objeto la constitución, ampliación, división, registro y extinción de una hipoteca, así como su nulidad, cancelación, o bien, el pago o prelación del crédito que la hipoteca garantice.
+(REFORMADO, P.O. 16 DE FEBRERO DE 2012)
+Para que el juicio que tenga por objeto el pago o la prelación de un crédito hipotecario se siga según las reglas especiales del presente Capítulo, y supletoriamente conforme a las reglas de los juicios extraordinarios, es, requisito indispensable que el crédito conste en escritura pública o escritura privada, según corresponda en los términos de la legislación común y se encuentre inscrito en el Registro Público de la Propiedad, y que sea además, de plazo cumplido, o que éste sea exigible en los términos pactados o bien, conforme a las disposiciones legales aplicables.
