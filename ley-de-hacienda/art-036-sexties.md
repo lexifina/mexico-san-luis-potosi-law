@@ -62,7 +62,8 @@ Antigüedad
 80.150
 90.075
 2. El resultado obtenido conforme al inciso anterior, se multiplicará por el factor de actualización a que se refiere la fracción VI del artículo 36 Nonies de esta Ley.
-3. A este resultado a su vez, se le aplicará la tarifa siguiente al numeral 1 de la fracción I de este artículo.
+(REFORMADO, P.O. 31 DE MAYO DE 2012)
+3. A este resultado a su vez, se le aplicará la tarifa siguiente al inciso a) de la fracción I de este artículo.
 c) Tratándose de vehículos que siendo de servicio particular, durante un ejercicio fiscal pasen a ser de servicio público para transporte de pasajeros denominados "taxis", para el ejercicio fiscal siguiente a aquél en que se dé esta circunstancia, el impuesto se calculará conforme al procedimiento previsto en el inciso a) de la fracción II de este artículo.
 d) Tratándose de vehículos que siendo de servicio de transporte de pasajeros denominados "taxis" o de transporte de carga pasen a ser de servicio particular, para el ejercicio fiscal siguiente a aquél en que se dé esta circunstancia, el impuesto se calculará conforme al procedimiento previsto en el inciso b) de la fracción II de este artículo.
 e) Tratándose de motocicletas, bicimotos, tricimotos, cuatrimotos, motonetas y triciclos con motor de fabricación nacional o importadas, el impuesto será el que resulte de aplicar el procedimiento siguiente:
