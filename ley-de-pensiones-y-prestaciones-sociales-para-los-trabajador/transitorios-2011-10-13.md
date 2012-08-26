@@ -123,6 +123,9 @@ Se recibirá en el ordende los homólogos en activo
 y con los requisitos
 establecidos en esteGratificación anual de 90
 Decretodías
+(REFORMADO PRIMER
+PÁRRAFO, P.O. 25 DE
+AGOSTO DE 2012)
 PARATrabajador con másCien por ciento del valor
 BENEFICIARIOSde 18 años laboradospresente del promedio del
 DEL TRABAJADORy cotizadossalario cotizado ante la
@@ -134,7 +137,7 @@ DIECIOCHO AÑOSSe recibirá en el ordenhasta reducirla al cincuenta
 DE HABERy con los requisitospor ciento de la cifra
 CONTRIBUIDOestablecidos en esteprimitiva, de acuerdo con la
 AL FONDO,Decretotabla de porcentajes que se
-SIN HABERincluye en el artículo Sexto
+SIN HABERincluye en el artículo séptimo
 SOLICITADO PENSIONtransitorio de este Decreto
 O ANTES DE HABER
 COMENZADO ASerá incrementada en el
