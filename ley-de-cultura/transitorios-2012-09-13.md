@@ -1,0 +1,5 @@
+P.O. 13 DE SEPTIEMBRE DE 2012.
+PRIMERO La Ley que se expide, así como los artículos, segundo, y tercero de este Decreto, entrarán en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Las bibliotecas que bajo el esquema que determina la Ley que se expide, se integren a la Red Estatal de Bibliotecas Públicas, y formen parte de la (sic) ésta última, seguirán dependiendo presupuestal, administrativa y operativamente, de las dependencias o entidades a las que actualmente pertenezcan; y deben atender para su funcionamiento los lineamientos que expida la Coordinación Estatal de Bibliotecas Públicas, de la Secretaría de Educación de Gobierno del Estado.
+TERCERO. El Consejo de la Red Estatal de Bibliotecas Públicas debe integrarse en un plazo máximo de treinta días a la entrada en vigor de esta Ley; y su Reglamento Interior debe expedirse dentro del término de noventa días a partir de su vigencia.
+CUARTO. Se derogan todas las disposiciones que se opongan a este Decreto.
