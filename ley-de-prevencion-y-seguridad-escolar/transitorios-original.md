@@ -4,7 +4,8 @@ SEGUNDO. Se abroga la Ley de Prevención Escolar del Estado y municipios de San 
 TERCERO. El Ejecutivo del Estado emitirá la normatividad necesaria para coadyuvar a la prevención y seguridad escolar en términos de esta Ley.
 CUARTO. Se derogan las disposiciones normativas de igual o inferior jerarquía jurídica que se opongan a la presente Ley.
 Lo tendrá entendido el Ejecutivo del Estado, lo hará publicar, circular y obedecer.
-D A D O en el salón "Ponciano Arriaga Leija" del Honorable Congreso del Estado, el cuatro de septiembre de dos mil trece.
+(F. DE E., P.O. 15 DE OCTUBRE DE 2013)
+D A D O en el salón "Ponciano Arriaga Leija" del Honorable Congreso del Estado, el veintisiete de agosto de dos mil trece.
 Diputado Presidente, Jorge Aurelio Álvarez Cruz; Diputado Segundo Prosecretario, Jaén Castilla Jonguitud; Diputado Segundo Secretario, Federico Ángel Badillo Anguiano. (Rúbricas).
 Por tanto mando se cumpla y ejecute el presente Decreto y que todas las autoridades lo hagan cumplir y guardar y al efecto se imprima, publique y circule a quienes corresponda.
 D A D O en el Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de San Luis Potosí, a los seis días del mes de septiembre del año dos mil trece.
