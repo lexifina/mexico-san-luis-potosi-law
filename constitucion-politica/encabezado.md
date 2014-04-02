@@ -1,4 +1,4 @@
-CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI
+CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSÍ
 Constitución publicada en la Quinta Epoca, Tomo III, Periódicos Oficiales números 1, 2, 3, 4, 5, 6, 7, 8, 9, 10 y 11, de fechas: 2, 5, 9, 12, 16, 19, 23, 26 y 30 de enero; 2 y 6 de febrero de 1918, respectivamente.
 EL C. GENERAL JUAN BARRAGAN, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes, sabed:
 El XXV Congreso del Estado Libre y Soberano de San Luis Potosí, conforme al artículo 5º. del Decreto de 22 de Marzo del corriente año, expedido por el C. Primer Jefe del Ejército Constitucionalista, reformando la última parte del artículo 7º. del Plan de Guadalupe, y al artículo 3º. del Decreto de Convocatoria del 30 del mismo mes, del Gobierno Provisional, ha tenido a bien expedir la siguiente Constitución Política del Estado Libre y Soberano de San Luis Potosí, que reforma la del 27 de julio de 1861.
