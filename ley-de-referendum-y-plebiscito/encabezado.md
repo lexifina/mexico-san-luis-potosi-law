@@ -1,4 +1,4 @@
-LEY DE REFERENDUM Y PLEBISCITO DEL ESTADO DE SAN LUIS POTOSI
+LEY DE REFERÉNDUM Y PLEBISCITO DEL ESTADO DE SAN LUIS POTOSÍ
 Ley publicada en el Periódico Oficial del Estado de San Luis Potosí, el sábado 10 de mayo de 2008.
 C.P. Marcelo de los Santos Fraga, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
 DECRETO 362
