@@ -1,0 +1,7 @@
+P.O. 15 DE JULIO DE 2014.
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Dentro de los treinta días naturales siguientes a la publicación de este Decreto, el titular del Poder Ejecutivo del Estado deberá efectuar las modificaciones que resulten necesarias al Reglamento de la Ley de Transporte Público del Estado.
+TERCERO. Dentro de los noventa días naturales siguientes a la publicación de este Decreto, la Secretaría de Comunicaciones y Transportes deberá publicar en las cuatro zonas del Estado, las declaratorias de necesidades y, en su caso, convocatorias para la expedición de permisos en las modalidades a que se refieren las fracciones IV y V incisos a) y b) del artículo 21, así como las contenidas en el artículo 22, de la Ley de Transporte Público del Estado.
+CUARTO. Los ayuntamientos de la Entidad, contarán con treinta días naturales a partir de la expedición del presente Decreto, para efecto de convocar a sus consejos municipales y éstos puedan emitir opinión sobre las necesidades sobre servicio de transporte rural, y remitir esta opinión a la Secretaría de Comunicaciones y Transportes.
+QUINTO. Las concesiones otorgadas hasta antes de la entrada en vigor de este Decreto, continuarán surtiendo sus efectos jurídicos en términos de las condiciones en que fueron expedidas.
+SEXTO. Se derogan las disposiciones que se opongan al presente Decreto.
