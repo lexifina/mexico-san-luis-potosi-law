@@ -1,5 +1,4 @@
 LEY DE DESARROLLO SOCIAL PARA EL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ
-N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 22 DE OCTUBRE DE 2011 NO APLICA AL ARTICULADO DEL DECRETO 742 PUBLICADO EN EL P.O. DE 20 DE OCTUBRE DE 2011.
 Ley publicada en la Edición Extraordinaria del Periódico Oficial del Estado de San Luis Potosí, el jueves 17 de abril de 2008.
 C.P. Marcelo de los Santos Fraga, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
 DECRETO 353
