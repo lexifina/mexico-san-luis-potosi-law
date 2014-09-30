@@ -1,8 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
-(REFORMADO, P.O. 20 DE DICIEMBRE DE 2011)
-ARTICULO 36 QUINQUE. Son responsables solidarios del pago del impuesto establecido en este capítulo:
-I. Quienes por cualquier título adquieran la propiedad, tenencia o uso del vehículo, hasta por el monto del adeudo del impuesto que en su caso existiera, aún cuando se trate de personas que no estén obligadas al pago del mismo;
-II. Quienes reciban vehículos en consignación o comisión para su enajenación, por el monto del adeudo del impuesto que en su caso existiera;
-III. Las autoridades federales, estatales o municipales competentes, que autoricen el registro de vehículos, matrículas, altas, cambios o bajas de placas o que efectúen la renovación de los mismos, sin haberse cerciorado que no existan adeudos por este impuesto, correspondiente a los últimos cinco años, salvo en los casos en que el contribuyente acredite que se encuentra liberado de esta obligación, y
-IV. Las autoridades competentes que expidan los certificados de aeronavegabilidad o de inspección de seguridad a embarcaciones y los certificados de matrícula para las aeronaves, cuando al expedirlos, el tenedor o usuario del vehículo no compruebe el pago del impuesto establecido en este capítulo, a excepción de los casos en que se encuentre liberado de ese pago.
-Las autoridades federales, estatales o municipales competentes, no autorizarán registros de vehículos, matrículas, certificados, altas o bajas, cambio de placas, o efectuarán la renovación de los mismos, si el tenedor o usuario del vehículo no comprueba el pago del impuesto o, en su caso, acredita que se encuentra liberado de esta obligación. Asimismo, dichas autoridades solamente registrarán vehículos cuyos propietarios comprueben estar domiciliados en el territorio del Estado.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE DEROGACIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+ARTICULO 36 QUINQUE. (DEROGADO, P.O. 27 DE SEPTIEMBRE DE 2014)

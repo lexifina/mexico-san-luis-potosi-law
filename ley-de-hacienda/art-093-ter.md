@@ -1,6 +1,3 @@
-(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 15 DE ABRIL DE 2003)
-CAPITULO VII
-DERECHOS POR EL USO DE BIENES DEL DOMINIO PUBLICO ESTATAL
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO, P.O. 22 DE DICIEMBRE DE 2012)
 ARTICULO 93 TER. Las personas que hagan uso del estacionamiento en los que forman parte de los bienes del Estado, cubrirán los derechos establecidos en pesos, previstos en el presente artículo, por vehículo:
