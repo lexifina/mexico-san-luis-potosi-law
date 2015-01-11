@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE ENERO DE 2015)
+ARTICULO 39 QUINQUE (SIC). El Estado garantizará a las personas usuarias de los servicios públicos de salud, que las intervenciones quirúrgicas que realice, serán efectuadas por especialistas acreditados en la materia que se trate, en los términos de la Ley General de Profesiones; salvo las circunstancias en las que la omisión de la prestación del servicio médico, implique inminentemente la pérdida de la vida.
