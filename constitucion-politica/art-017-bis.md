@@ -1,10 +1,3 @@
-(ADICIONADO, P.O. 18 DE OCTUBRE DE 2007)
-ARTÍCULO 17 BIS.- En el Estado de San Luis Potosí es prerrogativa de todas las personas, conocer y acceder a la información pública, con las excepciones previstas en esta Constitución y en la ley de la materia.
-Del mismo modo, toda persona tiene el derecho a acceder a la información sobre sí misma o sus bienes, asentada en archivos, bases de datos y registros públicos o privados de quienes tengan el carácter de entes obligados conforme a la ley, así como a actualizar, rectificar, suprimir o mantener en reserva dicha información, en los términos de la ley. En cualquier caso, la ley protegerá a las personas contra cualquier lesión en sus derechos, resultante del tratamiento de sus datos personales.
-La Comisión Estatal de Garantía de Acceso a la Información Pública, es un organismo público con autonomía presupuestaria, operativa, de gestión y de decisión; encargado de garantizar el ejercicio de las prerrogativas asentadas en este precepto; y vigilar la aplicación y cumplimiento de la ley de la materia, resolviendo sobre actos u omisiones de naturaleza administrativa que incumplan el derecho de acceso a la información pública, por parte de los Poderes del Estado, los municipios y sus entidades, concesionarios de bienes y servicios, organismos constitucionales autónomos, partidos políticos y demás entes obligados; imponer a los servidores públicos sanciones pecuniarias por infracciones a la ley, y por incumplimiento de las resoluciones que dicte en la materia; y promover ante las autoridades competentes, las responsabilidades y las sanciones administrativas que correspondan; así como presentar denuncias ante los órganos de autoridad que correspondan.
-Dependiente de la Comisión habrá un Sistema Estatal de Documentación y Archivos, responsable de aplicar las regulaciones que se establezcan en materia de administración y sistematización de la documentación e información, en posesión de las entidades públicas.
-La Comisión estará integrada por tres comisionados numerarios, y tres supernumerarios, que serán electos por cuando menos el voto de las dos terceras partes de los miembros del Congreso del Estado, previo procedimiento que iniciará con una convocatoria abierta para la presentación de solicitudes y propuestas.
-Los comisionados durarán en su cargo cuatro años, y, en ese tiempo, no podrán ser removidos sino por las causas y a través de los procedimientos previstos por el Título Décimo Segundo de esta Constitución.
-(REFORMADO, P.O. 20 DE NOVIEMBRE DE 1996)
-CAPÍTULO II
-De la Defensoría Social
+(DEROGADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 26 DE MARZO DE 2015)
+CAPÍTULO I BIS
+ARTÍCULO 17 BIS.- (DEROGADO, P.O. 26 DE MARZO DE 2015)
