@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2015)
+ARTICULO 83 BIS. Por los servicios que preste el Estado, a través de las instituciones públicas de salud, se cobrarán los siguientes derechos:
+I. Los prestados por los Servicios de Salud del Estado:
+Los derechos se cobrarán conforme a los conceptos y las cuotas establecidas en el Anexo Único de la Ley de Ingresos correspondiente a cada ejercicio fiscal.
+Como regla general, el monto del cobro se establece en el nivel 5. Sin embargo, cuando el paciente o los familiares manifiesten que requieren apoyo adicional al respecto, el Departamento de Trabajo Social de la institución realizará un estudio socioeconómico y, en función del mismo, se establecerá el nivel de cobro que puede ir desde el exento, hasta el nivel 4. En las unidades médicas donde no se cuente con departamento de trabajo social, será responsabilidad del médico titular del mismo establecer el nivel del cobro. El nivel 6 se aplicará a los servicios médicos que se presten en función de convenios especiales celebrados con diferentes entidades, y
+II. Los prestados por el Hospital Central Dr. Ignacio Morones Prieto:
+Los derechos se cobrarán conforme a los conceptos y cuotas establecidas en el Anexo Único de la Ley de Ingresos correspondiente a cada ejercicio fiscal.
+El monto del cobro se realizará en función de los tabuladores establecidos, los cuales se determinarán en función del estudio socioeconómico que se le realice al paciente o familiar por parte del Departamento de Trabajo Social del Hospital, y podrán ser del A al D. El tabulador E únicamente aplicará a los pacientes con Seguro Popular, y los derechos correspondientes se les cobrarán a los Servicios de Salud del Estado de conformidad con los convenios celebrados.
