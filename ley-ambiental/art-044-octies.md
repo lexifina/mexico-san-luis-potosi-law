@@ -1,4 +1,1 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 23 DE JULIO DE 2011)
-ARTICULO 44 OCTIES. El Consejo Consultivo de Cambio Climático es el órgano de consulta especializado, que tiene por objeto dar el apoyo técnico y científico necesario para el buen desempeño de la planeación, ejecución, evaluación y control de la política en materia de cambio climático en el Estado.
-Se constituye como cuerpo colegiado de coordinación interinstitucional, el cual se conformará preferentemente por los representantes de organizaciones e instituciones sociales, empresariales y de investigación, de educación superior y profesionistas, y de dependencias y entidades gubernamentales, con mérito y experiencia en el tema de cambio climático.
+ARTICULO 44 OCTIES. (DEROGADO, P.O. 28 DE ABRIL DE 2016)
