@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE MAYO DE 2016)
+ARTICULO 85 BIS. Las niñas, los niños y las personas adolescentes podrán denunciar y presentar quejas ante la Comisión, sobre presuntas violaciones a los derechos humanos, sin necesidad de la intervención de un representante legal. En todos los casos la Comisión dará intervención a la Procuraduría de Protección de Niñas, Niños, Adolescentes, la Mujer, la Familia y Adulto Mayor del Estado de San Luis Potosí, para los efectos de que actúe en el ámbito de su competencia.
