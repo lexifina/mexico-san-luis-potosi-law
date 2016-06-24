@@ -7,7 +7,7 @@ III. En juicios donde se diluciden derechos de menores de edad, o incapaces;
 IV. Cuando el procedimiento esté suspendido por causa de fuerza mayor que impida actuar al juez, o tribunal, o a las partes;
 V. Cuando sea necesario esperar la resolución de una cuestión previa o conexa, por el mismo juez o por otra autoridad;
 VI. En los casos en que la suspensión provenga de cualquier otra situación que impida legalmente la continuación del procedimiento;
-VII. Cuando el procedimiento deba ser impulsado de oficio por el juez o tribunal;
+VII. (DEROGADA, P.O. 23 DE JUNIO DE 2016)
 VIII. Cuando se haya citado a las partes para oír sentencia;
 IX. En materia de ejecución de sentencias firmes, y
 X. Tratándose de negocios que se encuentren en segunda instancia para revisión oficiosa de la resolución pronunciada por el juez.
