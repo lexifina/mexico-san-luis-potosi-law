@@ -17,3 +17,4 @@ Dr. Fernando Toranzo Fernández
 El Secretario General de Gobierno
 Lic. José Eduardo González Sierra
 (Rúbrica)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
