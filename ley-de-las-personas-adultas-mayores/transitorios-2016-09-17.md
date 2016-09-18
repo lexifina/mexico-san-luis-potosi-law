@@ -1,0 +1,4 @@
+P.O. 17 DE SEPTIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETOS (SIC) 0386. SE REFORMA EL ARTÍCULO 11, LEY DE LA COMISIÓN ESTATAL DE DERECHOS HUMANOS DEL ESTADO DE SAN LUIS POTOSÍ; Y EL ARTÍCULO 59 EN SU FRACCIÓN III, DE LA LEY DE LAS PERSONAS ADULTAS MAYORES PARA EL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se derogan las disposiciones que se opongan a este Decreto.
