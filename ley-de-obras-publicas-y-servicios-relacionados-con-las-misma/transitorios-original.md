@@ -10,7 +10,7 @@ Lo tendrá entendido el Ejecutivo del Estado, lo hará publicar, circular y obed
 D A D O en el salón "Ponciano Arriaga Leija" del Honorable Congreso del Estado, el tres de octubre de dos mil trece.
 Diputado Presidente, Fernando Pérez Espinosa; Diputado Primer Secretario, José Francisco Martínez Ibarra; Diputado Segundo Secretario, Crisógono Sánchez Lara. (Rúbricas).
 Por tanto mando se cumpla y ejecute el presente Decreto y que todas las autoridades lo hagan cumplir y guardar y al efecto se imprima, publique y circule a quienes corresponda.
-DADO en el Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de San Luis Potosí, a los ocho días del mes de octubre del año dos mil trece.
+D A D O en el Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de San Luis Potosí, a los ocho días del mes de octubre del año dos mil trece.
 El Gobernador Constitucional del Estado
 Dr. Fernando Toranzo Fernández
 (Rúbrica)
