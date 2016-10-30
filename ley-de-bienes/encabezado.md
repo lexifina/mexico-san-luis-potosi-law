@@ -1,5 +1,4 @@
 LEY DE BIENES DEL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ
-N. DE E. LA FE DE ERRATAS PUBLICADA EN EL P.O. EL 8 DE SEPTIEMBRE DE 2015 NO APLICA AL ARTICULADO DEL DECRETO NÚMERO 1171 PUBLICADO EN EL P.O. DE 5 DE SEPTIEMBRE DE 2015.
 Ley publicada en la Edición Extraordinaria del Periódico Oficial del Estado de San Luis Potosí, el jueves 12 de enero de 2006.
 C.P. Marcelo de los Santos Fraga, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
 DECRETO 404
