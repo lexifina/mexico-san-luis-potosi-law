@@ -1,4 +1,4 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.]
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2008)
 ARTICULO 67 QUINQUE (SIC). El Estado promoverá acciones conjuntas con las comunidades indígenas, para el desarrollo de los conocimientos tradicionales de medicina y herbolaria. Asimismo, fortalecerá los procesos organizativos para preservar y difundir las prácticas de la medicina tradicional indígena, y propiciar una interrelación entre ésta y la medicina alópata
 (REFORMADO, P.O. 25 DE AGOSTO DE 2012)

@@ -1,4 +1,4 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.]
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2008)
 ARTICULO 67 TER. La Secretaría de Salud, y los municipios del Estado, garantizarán y apoyarán el desarrollo del libre ejercicio de la medicina tradicional de los pueblos y comunidades indígenas, que comprende el uso de plantas para fines rituales y curativos, a fin de que se conserven y desarrollen como parte de su cultura y patrimonio.
 La Secretaría de Salud del Estado establecerá un programa de conocimiento, investigación y registro de plantas medicinales que se utilicen en la medicina tradicional, a fin de contar con elementos que permitan evaluar su viabilidad o inocuidad y, en su caso, proscribir el uso de aquéllas que se compruebe de manera científica, que deterioran la salud de los usuarios.
