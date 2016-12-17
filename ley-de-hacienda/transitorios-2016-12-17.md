@@ -1,0 +1,4 @@
+P.O. 17 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0444.- SE REFORMA (SIC) LOS ARTÍCULOS 1° Y 30 Y ADICIONA AL ARTÍCULO 12 LA FRACCIÓN XIII BIS, AL TÍTULO QUINTO EL CAPÍTULO III Y LOS ARTÍCULOS, 71 BIS A 71 OCTIES, AL ARTÍCULO 129 PÁRRAFO PENÚLTIMO, Y EL ARTÍCULO 132 BIS, DE Y A LA LEY DE TRANSPORTE PÚBLICO DEL ESTADO DE SAN LUIS POTOSÍ. ASÍ MISMO SE ADICIONA EL ARTÍCULO 70 BIS, A LA LEY DE HACIENDA PARA EL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor ciento veinte días posteriores a la fecha de su publicación en el Periodico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
