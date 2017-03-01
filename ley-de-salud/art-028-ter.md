@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE FEBRERO DE 2017)
+ARTICULO 28 TER. El Ejecutivo del Estado, a través de la Secretaría de Salud Estatal, se coordinará con el gobierno federal, mediante la celebración de convenios de coordinación en el marco de la Planeación Nacional del Desarrollo, con el fin de alinear los programas estatales con la política pública en materia de atención y protección a personas con la condición del espectro autista.
