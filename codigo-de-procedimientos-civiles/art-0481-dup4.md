@@ -22,8 +22,8 @@ IX.- Las de litispendencia y conexidad; y
 X.- Las de cosa juzgada.
 (ADICIONADO, P.O. 9 DE MAYO DE 1997)
 Las excepciones comprendidas en las fracciones de la V a la VIII sólo se admitirán cuando se funden en prueba documental. Respecto de las excepciones de litispendencia y conexidad sólo se admitirán si se exhibe con la contestación, las copias selladas de la demanda y contestación de ésta o de las cédulas del emplazamiento del juicio pendiente o conexo, o bien, la documentación que acredite que se encuentra tramitándose un procedimiento arbitral.
-(ADICIONADO, P.O. 9 DE MAYO DE 1997)
-Tratándose de la excepción contemplada en la fracción X se deberá anexar copia certificada de la sentencia ejecutoriada.
+(REFORMADO, P.O. 14 DE MARZO DE 2017)
+Tratándose de la excepción contemplada en la fracción X se deberá anexar copia certificada de la sentencia ejecutoriada o, en su caso, original o copia certificada del convenio emanado del procedimiento de mediación a que se refieren los artículos 137 fracción III y 268 BIS de este Código.
 (ADICIONADO, P.O. 9 DE MAYO DE 1997)
 El juez bajo su más estricta responsabilidad revisará escrupulosamente la contestación de la demanda y desechará de plano las excepciones diferentes a las que se autorizan, así como aquéllas en que sea necesario exhibir documentos y los mismos no se acompañen, salvo los casos a que se refieren los artículos 91 y 92 de este Código.
 (ADICIONADO, P.O. 9 DE MAYO DE 1997)
