@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, P.O. 19 DE DICIEMBRE DE 2009)
 ARTICULO 28 SEXTIES. Este impuesto se causará en el momento de la protocolización del acto jurídico por el que se transmita la propiedad del bien inmueble de que se trate, mediante la escritura pública correspondiente, y deberá ser calculado, retenido y enterado a la Secretaría de Finanzas por los fedatarios públicos que expidan la misma, dentro de los quince días siguientes al que celebren la operación respectiva.
 Las autoridades fiscales podrán determinar la cantidad del impuesto que deben pagar los contribuyentes, mediante el ejercicio de sus facultades de comprobación; incluso, en forma presuntiva, en términos del Código Fiscal del Estado.
