@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 23 DE JULIO DE 2011)
 ARTICULO 44 BIS. Para la preservación y aprovechamiento sustentable de la flora y fauna silvestre, la SEGAM, previo a los estudios correspondientes, podrá promover ante las autoridades federales competentes:
 I. El establecimiento o modificación de vedas;

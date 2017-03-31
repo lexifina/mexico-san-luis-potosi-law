@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 30 DE MARZO DE 2017)
+ARTICULO 29 BIS. Las organizaciones sociales, personas morales, públicas o privadas, los pueblos indígenas y demás personas interesadas, podrán destinar voluntariamente a la conservación predios de su propiedad, mismos que establecerán, administrarán y manejarán conforme a lo siguiente:
+I. Una vez expedido el decreto correspondiente, la Secretaría de Ecología y Gestión Ambiental extenderá certificado en los términos del Reglamento;
+II. Las áreas estatales destinadas voluntariamente a la conservación se administrarán por su propietario, y se manejarán conforme al plan de manejo definido en conjunto con la Secretaría de Ecología y Gestión Ambiental;
+III. Cuando en las áreas estatales destinadas voluntariamente a la conservación se realice el aprovechamiento sustentable de recursos naturales, los productos obtenidos podrán ostentar un sello de sustentabilidad expedido por la Secretaría de Ecología y Gestión Ambiental, conforme al procedimiento previsto en el Reglamento, y
+IV. El Reglamento establecerá los procedimientos relativos a la modificación de superficies o planes de manejo, así como la transmisión, extinción o prórroga de los certificados expedidos por la Secretaría de Ecología y Gestión Ambiental.
