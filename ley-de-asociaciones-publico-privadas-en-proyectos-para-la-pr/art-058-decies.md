@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE ABRIL DE 2017)
+Artículo 58 Decies. La presentación de propuestas sólo da derecho al promotor a que la dependencia o entidad las analice y evalúe. La opinión de viabilidad por la cual un proyecto se considere o no procedente, no representa un acto de autoridad y, contra ella, no procederá instancia ni medio de defensa alguno.

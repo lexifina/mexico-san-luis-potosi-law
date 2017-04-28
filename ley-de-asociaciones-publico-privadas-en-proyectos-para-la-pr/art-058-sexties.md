@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE ABRIL DE 2017)
+Artículo 58 Sexties. Transcurrido el plazo para la evaluación del proyecto y, en su caso, su prórroga, la dependencia o entidad emitirá la opinión de viabilidad que corresponda sobre el proyecto y del concurso, o bien sobre la adquisición o no de los estudios presentados por quien presentó el proyecto.
+La aludida opinión se notificará a quien presente el proyecto, y deberá publicarse en el Periódico Oficial del Gobierno del Estado "Plan de San Luis", y en la página de internet de la dependencia o entidad, dentro de los cinco días hábiles siguientes a la fecha en que haya sido emitida, sin incluir información reservada o confidencial, en términos de las disposiciones aplicables.

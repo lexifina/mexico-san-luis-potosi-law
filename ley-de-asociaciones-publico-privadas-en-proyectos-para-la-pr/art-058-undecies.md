@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE ABRIL DE 2017)
+Artículo 58 Undecies. En caso de que durante el plazo de evaluación el interesado no proporcione la información solicitada sin causa justificada, o bien, promueva el proyecto con alguna otra entidad o de alguna otra manera, o ceda su propuesta a terceros, se dará por concluido el trámite, y el interesado perderá en favor del Ejecutivo del Estado o del Municipio, en su caso, todos sus derechos sobre los estudios presentados, incluso si el proyecto se concursa.
