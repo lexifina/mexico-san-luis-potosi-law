@@ -3,7 +3,8 @@ Ley publicada en la Edición Extraordinaria del Periódico Oficial del Estado de
 Dr. Fernando Toranzo Fernández, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
 DECRETO 563
 La Sexagésima Legislatura Constitucional del Estado Libre y Soberano de San Luis Potosí, Decreta
-EXPOSICIÓN DE MOTIVOS…
+EXPOSICIÓN DE MOTIVOS
+[…]
 Se expide la Ley de Mediación y Conciliación para el Estado de San Luis Potosí, para quedar como sigue
 LEY DE MEDIACIÓN Y CONCILIACIÓN PARA EL ESTADO DE SAN LUIS POTOSÍ
 Capítulo I

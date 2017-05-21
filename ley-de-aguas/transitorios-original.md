@@ -15,6 +15,8 @@ DECIMO PRIMERO. Para los efectos del artículo anterior, la Comisión Estatal de
 DECIMO SEGUNDO. Los asuntos que se encuentren en trámite a la entrada en vigor del presente Decreto, serán resueltos por las autoridades y organismos competentes en los términos de la ley que se abroga.
 (ADICIONADO, P.O. 26 DE NOVIEMBRE DE 2016)
 DECIMO TERCERO. Los organismos operadores de agua potable de los municipios del Estado, previo acuerdo de su Junta de Gobierno, podrán presentar al Congreso del Estado propuestas de modificación a sus respectivas leyes de cuotas y tarifas debidamente fundamentadas y motivadas, a fin de implementar programas temporales que coadyuven a la regularización de adeudos de los usuarios morosos y, con ello, lograr que se incentive la recaudación y se fomente la cultura de pago; así mismo, acciones que considere convenientes para beneficiar a los usuarios cumplidos en los pagos del servicio público doméstico de agua.
+(ADICIONADO, P.O. 20 DE MAYO DE 2017)
+En caso de que el municipio no cuente con organismo operador, los ayuntamientos, a través de su presidente y, previo acuerdo de Cabildo, podrán presentar iniciativas de reforma a sus leyes de ingresos vigentes en el rubro respectivo, con el fin señalado en el párrafo anterior.
 Lo tendrá entendido el Ejecutivo del Estado y lo hará publicar, circular y obedecer.
 DADO en el Salón de Sesiones del Honorable Congreso del Estado, el día trece de diciembre de dos mil cinco.
 Diputado Presidente: Juan Rodríguez Díaz, Primer Prosecretario en funciones de Secretario: Mauricio Leyva Ortiz, Diputado Segundo Secretario: Pedro Pablo Cepeda Sierra (Rúbricas).
