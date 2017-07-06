@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, P.O. 24 DE MAYO DE 2016)
 ART. 795-BIS.- La caducidad se decretará de oficio o, a petición de parte, cualquiera que sea el estado del juicio, desde el primer auto que se dicte en el mismo y hasta la citación para oír sentencia, en aquellos casos en que concurran las siguientes circunstancias:
 I. Que hayan transcurrido ciento ochenta días naturales contados a partir del día siguiente a aquél en que surtió efectos la notificación de la última resolución judicial dictada, y

@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONADO, P.O. 24 DE MAYO DE 2016)
 ART. 795 SEPTIES.- En los siguientes casos no podrá operar la caducidad de la instancia:
 I. Tratándose de juicios universales de concursos y sucesiones; pero si en los juicios con ellos relacionados que se tramiten acumulada, o independientemente, o que surjan o deriven de aquéllos;

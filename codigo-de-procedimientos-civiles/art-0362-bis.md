@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 16 DE OCTUBRE DE 2012)
 ART. 362 BIS.- Tienen impedimento legal, y por tal motivo son tachables:
 I.- El menor de catorce años, a menos que se trate de casos de imprescindible necesidad, a juicio del juez;
