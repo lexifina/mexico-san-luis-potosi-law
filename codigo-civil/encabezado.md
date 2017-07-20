@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CÓDIGO CIVIL PARA EL ESTADO DE SAN LUIS POTOSÍ
 Código publicado en el Suplemento del Periódico Oficial del Estado de San Luis Potosí, el 18 de abril de 1946.
 GONZALO N. SANTOS, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed:
