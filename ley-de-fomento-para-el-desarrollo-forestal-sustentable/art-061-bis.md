@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2017)
+ARTICULO 61 BIS. A los terrenos de uso de suelo forestal que hayan sido afectados por incendios forestales, no se les podrá autorizar el cambio de uso de suelo durante un período de veinte años, a partir del momento del incendio; y hasta que se acredite fehacientemente ante las autoridades correspondientes, que se ha subsanado el daño ecológico; lo anterior sin perjuicio de las normas aplicables.

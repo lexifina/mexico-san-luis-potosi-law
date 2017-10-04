@@ -1,4 +1,4 @@
-LEY DE DONACIÓN Y TRASPLANTES DE ÓRGANOS, TEJIDOS Y COMPONENTES PARA EL ESTADO DE SAN LUIS POTOSÍ
+LEY DE DONACIÓN Y TRASPLANTES DE ÓRGANOS, TEJIDOS Y CÉLULAS PARA EL ESTADO DE SAN LUIS POTOSÍ
 Ley publicada en la Edición Extraordinaria del Periódico Oficial del Estado de San Luis Potosí, el martes 25 de marzo de 2014.
 Dr. Fernando Toranzo Fernández, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
 DECRETO 530
