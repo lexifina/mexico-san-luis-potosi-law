@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE OCTUBRE DE 2017)
+ARTICULO 24 BIS. Los Servicios de Salud proporcionarán, en la medida de sus capacidades presupuestales, atención médica domiciliaria a los derechohabientes que se encuentren inscritos al sistema de protección social de salud, de conformidad con lo que establece el artículo 151 de este Ordenamiento y que, por imposibilidad física, los pacientes no puedan acudir a los servicios de salud pública y atención médica, o se trate de campañas de medicina preventiva.
