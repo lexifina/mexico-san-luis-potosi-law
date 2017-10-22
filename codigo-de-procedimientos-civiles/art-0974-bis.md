@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 21 DE OCTUBRE DE 2017)
+ART. 974 BIS.- La resolución del recurso a que se refiere este capítulo se fundará en derecho, y examinará todos y cada uno de los agravios hechos valer por el recurrente, teniendo la facultad de invocar hechos notorios; a menos que uno de ellos resulte fundado, deberá examinarlos todos antes de entrar al análisis de los que se planteen sobre violación de requisitos formales o vicios del procedimiento.
+La autoridad podrá corregir los errores que advierta en la cita de los preceptos que se consideren violados, y examinar en su conjunto los agravios, así como los demás razonamientos del recurrente, a fin de resolver la cuestión efectivamente planteada, pero sin cambiar los hechos expuestos en el recurso.
+Igualmente podrá revocar los actos recurridos cuando advierta una ilegalidad manifiesta y los agravios sean insuficientes, pero deberá fundar cuidadosamente los motivos por los que consideró ilegal el acto y precisar el alcance de su resolución.
+No se podrán revocar o modificar los actos reclamados en la parte no impugnada por el recurrente.
+La resolución expresará con claridad los actos que se modifiquen y, si la modificación es parcial, se indicará la parte correspondiente de manera clara y precisa.
