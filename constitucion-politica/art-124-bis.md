@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, P.O. 3 DE MARZO DE 2016)
 ARTÍCULO 124 BIS.- El Sistema Estatal Anticorrupción es el conjunto de autoridades, elementos, programas y acciones, que interactúan entre sí, para el diseño, evaluación de políticas de educación, concientización, prevención, detección y sanción de responsabilidades administrativas y hechos de corrupción, así como la promoción de la integridad pública. Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
 (F. DE E., P.O. 5 DE MARZO DE 2016)
