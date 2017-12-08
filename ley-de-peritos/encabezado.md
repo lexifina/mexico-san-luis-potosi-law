@@ -3,4 +3,5 @@ Ley publicada en la Edición Extraordinaria del Periódico Oficial del Estado de
 Dr. Fernando Toranzo Fernández, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
 DECRETO 1161
 LA QUINCUAGESIMA NOVENA LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI, DECRETA
-EXPOSICION DE MOTIVOS...
+EXPOSICION DE MOTIVOS
+[...]
