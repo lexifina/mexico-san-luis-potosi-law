@@ -1,9 +1,12 @@
 TRANSITORIOS
 PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado "Plan de San Luis".
 SEGUNDO. Se derogan todas aquellas disposiciones en materia de protección de datos personales, de carácter estatal y municipal, que contravengan lo dispuesto por la presente Ley.
-TERCERO. Los responsables expedirán sus avisos de privacidad en los términos previstos en la presente Ley y demás disposiciones aplicables, a más tardar tres meses después de la entrada en vigor de ésta Ley.
-CUARTO. Los responsables deberán observar lo dispuesto en el Título Segundo, Capítulo II de la presente Ley, a más tardar un año después de la entrada en vigor de ésta.
-QUINTO. La CEGAIP deberá expedir los lineamientos, parámetros, criterios y demás disposiciones de las diversas materias a que se refiere la presente Ley, dentro de un año siguiente a la entrada en vigor de ésta.
+(REFORMADO, P.O. 14 DE DICIEMBRE DE 2017)
+TERCERO. Los responsables expedirán sus avisos de privacidad en los términos y plazos previstos en la Ley General.
+(REFORMADO, P.O. 14 DE DICIEMBRE DE 2017)
+CUARTO. Los responsables deberán observar lo dispuesto en el Título Segundo, Capítulo II, de la presente Ley, a más tardar el veintidós de enero del año dos mil dieciocho.
+(REFORMADO, P.O. 14 DE DICIEMBRE DE 2017)
+QUINTO. La CEGAIP deberá expedir los lineamientos, parámetros, criterios y demás disposiciones de las diversas materias a que se refiere la presente Ley, a más tardar el veintidós de enero del año dos mil dieciocho.
 SEXTO. Los procedimientos iniciados durante la vigencia de la Ley de Transparencia y Acceso a la Información Pública del Estado de San Luis Potosí, se sustanciarán hasta su conclusión, conforme al ordenamiento señalado.
 SÉPTIMO. El Congreso del Estado de San Luis Potosí deberá hacer las previsiones presupuestales necesarias para la operación de la presente Ley y establecer las partidas presupuestales específicas en el Presupuesto de Egresos del Estado de San Luis Potosí para el siguiente ejercicio fiscal a su entrada en vigor.
 Lo tendrá entendido el Ejecutivo del Estado, lo hará publicar, circular y obedecer.
@@ -17,3 +20,4 @@ Juan Manuel Carreras López
 El Secretario General de Gobierno
 Alejandro Leal Tovías
 (Rúbrica)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
