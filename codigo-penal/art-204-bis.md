@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 10 DE OCTUBRE DE 2017)
-ARTÍCULO 204 BIS. Al que abandone a un adulto mayor en situación de vulnerabilidad, teniendo obligación de procurarlo, en términos del Código Familiar del Estado, siempre y cuando, en su caso, haya cumplido con sus obligaciones familiares respecto de aquél; así como quien o quienes estando a cargo de un establecimiento público o privado, en que se brinde asistencia integral a adultos mayores, no la proporcione de manera adecuada y oportuna, se les impondrá una pena de dos a cinco años de prisión y sanción pecuniaria de doscientas a quinientas (sic) días de unidades de medida y actualización, más la reparación del daño.
-Para el caso de que el abandono traiga como consecuencia la muerte de la persona, se aplicarán las penas que este propio Código contempla para el homicidio por omisión.
-CAPÍTULO VI (SIC)
-Violencia Familiar

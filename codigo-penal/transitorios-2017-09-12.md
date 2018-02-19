@@ -1,4 +1,0 @@
-P.O. 12 DE SEPTIEMBRE DE 2017.
-[N. DE E. TRANSITORIOS DEL "DECRETO 0694.- SE ABROGA LA LEY DE EJECUCIÓN DE MEDIDAS CAUTELARES; PENAS, Y MEDIDAS DE SEGURIDAD PARA EL ESTADO DE SAN LUIS POTOSÍ Y SE DEROGA DE LA PARTE GENERAL EN EL TÍTULO QUINTO SU CAPÍTULO VIII Y LOS ARTÍCULOS, 91 A 94 DEL CÓDIGO PENAL DEL ESTADO DE SAN LUIS POTOSÍ".]
-PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
-SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.

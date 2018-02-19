@@ -1,4 +1,0 @@
-P.O. 14 DE OCTUBRE DE 2016.
-[N. DE E. TRANSITORIOS DEL "DECRETO 0414.- SE REFORMA DE LA PARTE ESPECIAL LA DENOMINACIÓN DEL TÍTULO DÉCIMO OCTAVO; Y ADICIONA CAPÍTULO III "DELITOS CONTRA LA PRESTACIÓN DEL SERVICIO DE TRANSPORTE PÚBLICO DE PASAJEROS" DE Y AL CÓDIGO PENAL DEL ESTADO DE SAN LUIS POTOSÍ".]
-PRIMERO. Este Decreto entrará en vigor el uno de enero de 2017, previa publicación en el Periódico Oficial del Estado.
-SEGUNDO. Se derogan las disposiciones que se opongan al presente Decreto.

@@ -1,7 +1,0 @@
-(NOTA: EL 8 DE OCTUBRE DE 2019, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL APARTADO VI Y VII, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 36/2018 Y SU ACUMULADA 39/2018, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS RETROACTIVOS AL 18 DE FEBRERO DE 2018, FECHA EN QUE ENTRÓ EN VIGOR EL DECRETO 0882, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
-(ADICIONADO, P.O. 17 DE FEBRERO DE 2018)
-ARTÍCULO 157 QUÁTER. Las sanciones por el delito de desaparición forzada de personas podrán disminuir cuando:
-I. Los autores o partícipes liberan a la víctima espontáneamente dentro de los diez días siguientes a la desaparición, disminuirán hasta en una mitad;
-II. Si los autores o partícipes proporcionan información efectiva que conduzca a la localización con vida de la persona desaparecida, disminuirán hasta en una tercera parte;
-III. Si los autores o partícipes proporcionan información efectiva que conduzca a la localización del cadáver o los restos humanos de la persona desaparecida, disminuirán hasta en una cuarta parte, y
-IV. Si los autores o partícipes proporcionan información efectiva que permita esclarecer los hechos a identificar a los responsables, disminuirán hasta en una quinta parte.

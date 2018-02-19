@@ -1,0 +1,20 @@
+B.O. 5 DE FEBRERO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 3251 SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES A LA LEY DE CAMBIO CLIMÁTICO DEL ESTADO DE BAJA CALIFORNIA SUR; Y SE EXPIDE LA LEY DE PREVENCIÓN Y GESTIÓN INTEGRAL DE RESIDUOS Y ECONOMÍA CIRCULAR DEL ESTADO DE BAJA CALIFORNIA SUR".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
+SEGUNDO. La Secretaría y los Ayuntamientos, dentro del término de 180 días naturales a partir de la entrada en vigor del presente decreto, deberán emitir las disposiciones reglamentarias correspondientes, y, en el ejercicio fiscal subsecuente, deberán considerar las reformas presupuestarias necesarias para cumplir con lo estipulado en la presente ley.
+La normatividad reglamentaria que al efecto expida el titular del Ejecutivo del Estado para el cumplimiento del presente decreto establecerá como mínimo los requisitos, especificaciones, condiciones, parámetros o límites permisibles para el desarrollo de actividades relacionadas con:
+I. La prevención y minimización de la generación de los residuos sólidos urbanos y de manejo especial con enfoque de economía circular;
+II. La separación y recolección de residuos sólidos urbanos y de manejo especial desde su fuente de generación;
+III. El establecimiento y operación de centros de acopio de residuos sólidos urbanos y de manejo especial destinados a reciclaje;
+IV. El establecimiento y operación de plantas de reciclado y tratamiento de residuos sólidos urbanos y de manejo especial;
+V. El establecimiento y operación de las plantas dedicadas a la elaboración de composta a partir de residuos orgánicos;
+VI. La prestación del servicio de limpia en sus etapas de barrido de las áreas comunes, vialidades y demás vías públicas, recolección y transporte a las estaciones de transferencia;
+VII. El manejo de residuos sólidos en sus etapas de transferencia y selección;
+VIII. El diseño, construcción y operación de estaciones de transferencia, plantas de selección y sitios de disposición final de residuos sólidos urbanos y de manejo especial;
+IX. El cierre de los tiraderos controlados y no controlados de residuos sólidos urbanos y de manejo especial, así como la remediación de los sitios en los que se encuentran ubicados, cuando sea el caso; y
+X. La reutilización, reciclaje, tratamiento y disposición final de envases y empaques, llantas usadas, papel y cartón, vidrio, residuos metálicos, plásticos y otros materiales.
+TERCERO. La Secretaría, en un plazo no mayor de 180 días naturales a la entrada en vigor del presente decreto, deberá actualizar y publicar el Programa Estatal para la Prevención y Gestión Integral de Residuos, para efectos de armonizar a las disposiciones contenidas en la presente Ley.
+CUARTO. La Secretaría, deberá elaborar y emitir las disposiciones correspondientes al Programa Estatal para la Prevención y Gestión Integral de Residuos de Manejo Especial, así como las reformas presupuestarias necesarias para cumplir con lo estipulado en la presente Ley, considerando lo anterior en el ejercicio presupuestario posterior a la entrada en vigor del presente decreto.
+QUINTO. Los ayuntamientos, en un plazo no mayor de 180 días naturales siguientes a la entrada en vigor del presente decreto, deberán adecuar sus reglamentos en materia ambiental para efectos de armonizarlos a las disposiciones contenidas en la presente Ley.
+SEXTO. El Gobierno del Estado de Baja California Sur en un plazo no mayor a 360 días a la entrada en vigor del presente decreto, deberá dictar los lineamientos y la norma técnica estatal sobre las características apropiadas de los residuos para la producción de composta o criterios para cada tipo de composta.
+SÉPTIMO. El Gobierno del Estado de Baja California Sur en un plazo no mayor a 180 días a la entrada en vigor del presente decreto, deberá constituir el Fondo Estatal Ambiental establecido en el artículo 87 de la Ley de Cambio Climático del Estado de Baja California Sur.
