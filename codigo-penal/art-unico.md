@@ -1,4 +1,0 @@
-ARTÍCULO ÚNICO.- Se expide la Ley de Cambio Climático del Estado de Baja California Sur, para quedar como sigue:
-EL H. CONGRESO DEL ESTADO DE BAJA CALIFORNIA SUR (SIC)
-DECRETA: (SIC)
-SE EXPIDE LA LEY DE CAMBIO CLIMÁTICO DEL ESTADO DE BAJA CALIFORNIA SUR. (SIC)
