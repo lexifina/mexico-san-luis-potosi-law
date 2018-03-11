@@ -5,5 +5,5 @@ Fernando Silva Nieto, Gobernador Constitucional del Estado Libre Soberano de San
 Que la Quincuagésima Quinta Legislatura Constitucional del Estado se ha servido dirigirme el siguiente:
 DECRETO 392
 LA QUINCUAGESIMA QUINTA LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI, DECRETA LO SIGUIENTE:
-...
+[...]
 LEY AMBIENTAL DEL ESTADO DE SAN LUIS POTOSI
