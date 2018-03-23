@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 10 DE ENERO DE 2015)
 ARTICULO 20 TER. El Consejo de Salud Estatal se integra por:
 I. La persona titular de la Secretaría de Salud, quien lo presidirá;
-II. La persona titular de la Dirección de Políticas y Calidad en Salud, que fungirá como Secretario Técnico;
+(REFORMADA, P.O. 22 DE MARZO DE 2018)
+II. La persona titular de la Dirección de Salud Pública de los Servicios de Salud del Estado, que fungirá como Secretario Técnico;
 III. Además de las vocalías con derecho a voz y voto, siguientes:
 a). La persona titular de la Dirección General del Sistema para el Desarrollo Integral de la Familia en el Estado.
 b). La persona titular de la Comisión Estatal para la Protección contra Riesgos Sanitarios;
