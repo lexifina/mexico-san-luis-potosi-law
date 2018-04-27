@@ -16,3 +16,4 @@ Dr. Fernando Toranzo Fernández
 El Secretario General de Gobierno
 Lic. Cándido Ochoa Rojas
 (Rúbrica)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
