@@ -1,4 +1,5 @@
 (ADICIONADO, P.O. 19 DE SEPTIEMBRE DE 2006)
 ARTICULO 127 QUATER. La Secretaría podrá solicitar aclaraciones, rectificaciones o ampliaciones al contenido de la manifestación de impacto ambiental que le sea presentada, suspendiéndose el término que restare para concluir el procedimiento. En ningún caso, la suspensión podrá exceder el plazo de treinta días hábiles, contados a partir de que ésta sea declarada por la Secretaría, siempre y cuando le sea entregada la información requerida.
 En caso de que la información complementaria solicitada no se haya proporcionado en tiempo y forma, la Secretaría desechará el trámite.
-Excepcionalmente, cuando por la complejidad y las dimensiones de una obra o actividad la autoridad requiera de un plazo mayor para su evaluación, este se podrá ampliar hasta por treinta días naturales adicionales, siempre que se justifique conforme a lo dispuesto en el reglamento de la presente Ley, circunstancia que deberá notificarse al solicitante.
+(REFORMADO, P.O. 3 DE MAYO DE 2018)
+Excepcionalmente, cuando por la complejidad y las dimensiones de una obra o actividad la autoridad requiera de un plazo mayor para su evaluación, éste se podrá ampliar hasta por treinta días hábiles adicionales, siempre que se justifique conforme a lo dispuesto en el reglamento de la presente Ley, circunstancia que deberá notificarse al solicitante.
