@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE JUNIO DE 2018)
+ARTICULO 103 BIS. Los Servicios de Salud del Estado aplicarán a niñas y niños a partir de los once años de edad, en cualquier momento y gratuitamente, con la anuencia de sus padres o tutores, y previo conocimiento de los beneficios y reacciones adversas, la vacuna contra el virus del papiloma humano; así mismo, implementará campañas permanentes de información respecto a este virus, sus formas de prevención y factores de riesgo.
