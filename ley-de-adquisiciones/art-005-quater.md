@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE JULIO DE 2018)
+ARTICULO 5o QUÁTER.- Los integrantes del Comité podrán nombrar por escrito o bajo su responsabilidad a suplentes ante el mismo, seleccionando preferentemente a personas que por la naturaleza de sus funciones en la institución, conozcan los trámites administrativos y procedimientos que marca esta Ley, y cuenten con los conocimientos, el criterio y las facultades necesarias para la toma de decisiones.

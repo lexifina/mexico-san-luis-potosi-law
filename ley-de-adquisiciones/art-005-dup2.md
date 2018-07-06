@@ -1,0 +1,14 @@
+(ADICIONADO, P.O. 3 DE JULIO DE 2018)
+ARTICULO 5o QUINQUE.- El Comité tendrá las atribuciones siguientes:
+I. Coadyuvar al cumplimiento de las disposiciones de esta Ley y demás ordenamientos legales aplicables;
+II. Desahogar e intervenir en los procedimientos de licitación pública, y autorizar sus excepciones, con apoyo en la fundamentación y motivación planteadas por las áreas requirentes;
+III. Dictaminar sobre las adquisiciones, arrendamientos y servicios, de conformidad con lo contemplado por esta Ley;
+IV. Observar y disponer lo necesario para que se satisfagan los procedimientos que establece la ley federal de la materia, cuando las adquisiciones, arrendamientos o servicios se ejerzan con cargo total o parcial a recursos federales;
+V. Vigilar que las adquisiciones, arrendamientos o servicios, se ajusten en lo establecido en la presente Ley, en las disposiciones administrativas, y a las demás leyes y reglamentos que resulten aplicables;
+VI. Designar la Comisión Técnica que se encargue de valorar las muestras de las adquisiciones, arrendamientos o servicios, que los licitantes presenten u ofrezcan dentro de las licitaciones públicas, confrontándolas con las especificaciones técnicas contenidas en la propuesta y características solicitadas por la institución;
+VII. Autorizar incrementos mayores del cincuenta por ciento de anticipos en adjudicaciones de contratos, órdenes de compra o de servicio, cuando hacerlo signifique un beneficio sustancial en costos o en otros conceptos para las instituciones;
+VIII. Autorizar la reducción de los plazos para la presentación y apertura de proposiciones, cuando existan razones de urgencia justificada;
+IX. Elaborar y aprobar su manual de integración, operación y funcionamiento y demás documentos administrativos que normen y hagan más efectivo el funcionamiento del Comité, considerando las bases, lineamientos y demás información que expida el órgano de control de cada institución;
+X. Autorizar la creación de subcomités de adquisiciones, arrendamientos y servicios, únicamente cuando por la naturaleza de sus funciones o la magnitud de sus operaciones, se justifique su instalación a juicio de la institución, previo dictamen del órgano de control; la integración y funcionamiento de éstos estará establecido en el manual de integración, operación y funcionamiento del Comité respectivo;
+XI. Rendir un informe anual al titular de la institución dentro del primer mes del siguiente ejercicio fiscal, respecto de las adquisiciones, arrendamientos y servicios que se adjudiquen a través de los procedimientos de licitación pública, invitación restringida y adjudicación directa, dictaminados por él, y
+XII. Las demás que les confieran ésta y otras leyes, reglamentos, decretos, acuerdos y normas relativas, en tanto les sean inherentes o necesarias para el mejor desempeño de sus funciones.
