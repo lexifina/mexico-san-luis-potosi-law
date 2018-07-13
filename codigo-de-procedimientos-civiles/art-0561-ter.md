@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE JULIO DE 2018)
+ART. 561 TER.- El divorcio incausado iniciará con la presentación de la demanda correspondiente por cualquiera de los cónyuges, la cual deberá reunir los requisitos establecidos en el artículo 253 de este Código, así como el artículo 86 Bis del Código Familiar para el Estado de San Luis Potosí, debiendo ofrecer todas las pruebas tendientes a acreditar la procedencia de la propuesta de convenio.
