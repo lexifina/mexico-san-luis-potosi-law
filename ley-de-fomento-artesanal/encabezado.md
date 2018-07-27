@@ -4,5 +4,5 @@ Fernando Silva Nieto, Gobernador Constitucional del Estado Libre y Soberano de S
 Que la Quincuagésima Sexta Legislatura Constitucional del Estado se ha servido dirigirme el siguiente:
 DECRETO 501
 LA QUINCUAGESIMA SEXTA LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI, DECRETA LO SIGUIENTE:
-...
+[...]
 LEY DE FOMENTO ARTESANAL DEL ESTADO DE SAN LUIS POTOSI
