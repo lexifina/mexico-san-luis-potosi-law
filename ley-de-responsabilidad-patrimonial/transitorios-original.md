@@ -15,3 +15,4 @@ C.P. Marcelo de los Santos Fraga
 El Secretario General de Gobierno
 Lic. Alfonso José Castillo Machuca
 (Rúbrica)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
