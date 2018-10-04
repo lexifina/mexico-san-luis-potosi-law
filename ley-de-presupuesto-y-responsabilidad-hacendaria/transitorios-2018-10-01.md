@@ -1,0 +1,5 @@
+P.O. 1 DE OCTUBRE DE 2018.
+[N. DE E. TRANSITORIOS DE LOS "DECRETOS (SIC) 1194.- SE REFORMAN LOS ARTÍCULOS 2°, 5°, 6°, 17, 25 Y 37 Y SE ADICIONAN FRACCIONES A LOS ARTÍCULOS 3°, 6° Y 25 DE LA LEY DE PRESUPUESTO Y RESPONSABILIDAD HACENDARIA DEL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entra en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Las dependencias y entidades de la administración pública estatal y municipal, organismos constitucionales autónomos y demás instituciones obligadas a reportar la información a que se refiere este Decreto, al Banco Estatal de Indicadores de Género, comenzarán a dar cumplimiento a la misma a partir del inicio de operaciones del referido Banco. La fecha de inicio de operaciones deberá ser notificada por escrito con cuando menos treinta días de anticipación a todas las dependencias, entidades, organismos constitucionales autónomos e instituciones obligadas de la administración pública estatal, así como a los municipios, por el Instituto de las Mujeres del Estado.
+TERCERO. Se derogan todas las disposiciones que se opongan al presente Decreto.
