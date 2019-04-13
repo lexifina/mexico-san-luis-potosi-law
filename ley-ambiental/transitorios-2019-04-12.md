@@ -1,0 +1,7 @@
+P.O. 12 DE ABRIL DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0147. SE REFORMA EL ARTÍCULO 132 DE LA LEY AMBIENTAL DEL ESTADO DE SAN LUIS POTOSÍ; ASÍ MISMO SE ADICIONA AL ARTÍCULO 31 EN SU INCISO A), LA FRACCIÓN I BIS, DE LA LEY ORGÁNICA DEL MUNICIPIO LIBRE DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. A partir de la entrada en vigor de este Decreto, el reglamento del Consejo Consultivo Municipal de Medio Ambiente y Desarrollo Sustentable, será expedido dentro de los tres primeros meses por los ayuntamientos.
+CUARTO. Las actuales administraciones municipales periodo 2018 - 2021, contarán con tres meses a partir de la entrada en vigor del presente Decreto, para integrar su Consejo Consultivo Municipal de Medio Ambiente y Desarrollo Sustentable.
+QUINTO. Los consejos consultivos municipales de Medio Ambiente y Desarrollo Sustentable, que los ayuntamientos hayan integrado antes de la entrada en vigencia de este Decreto, quedan conformados en los términos y formas que se constituyeron, y su organización y funcionamiento se regirá por el Reglamento a que alude la fracción I Bis del inciso a) del artículo 31, de la Ley Orgánica del Municipio Libre del Estado de San Luis Potosí.
