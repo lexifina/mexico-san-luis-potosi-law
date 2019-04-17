@@ -1,0 +1,10 @@
+LEY DE JUICIO POLÍTICO DEL ESTADO DE SAN LUIS POTOSÍ
+Ley publicada en la Edición Extraordinaria del Periódico Oficial del Estado de San Luis Potosí, el martes 16 de abril de 2019.
+Juan Manuel Carreras López, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
+DECRETO 0153
+La Sexagésima Segunda Legislatura Constitucional del Estado Libre y Soberano de San Luis Potosí, Decreta
+EXPOSICIÓN DE MOTIVOS
+El treinta de octubre de dos mil diecisiete se publicó en el Periódico Oficial del Estado "Plan de San Luis", el Decreto Legislativo número 708, que reformó los artículos, 57, 124, 127 y 128; y derogó de los artículos, 127 sus párrafos, primero, segundo, cuarto y sexto, y 128 sus fracciones, I, y II, y párrafo último, de la Constitución Política del Estado Libre y Soberano de San Luis Potosí; asimismo, derogó el artículo 54, de la Ley Orgánica del Poder Legislativo del Estado. En el Decreto citado se lee en un extracto de la exposición de motivos: … "con esta modificación se elimina de la Carta Magna del Estado, el privilegio procesal conocido como fuero constitucional, respecto a la inmunidad de todos los servidores públicos, y no solamente respecto de los diputados, que no era otra cosa más que la protección de carácter procesal en materia penal que los eximía de ser detenidos, procesados o juzgados, por su probable responsabilidad en la comisión de un delito (acción u omisión típica, antijurídica y punible), previsto en la ley; dejando a salvo la inviolabilidad de los diputados respecto de las manifestaciones que hagan en el desempeño de su encargo".
+Por lo que al no existir la protección constitucional, resulta obsoleto contar con un ordenamiento que establece un procedimiento inaplicable, por lo que es conveniente que la ley sólo regule el procedimiento de juicio político.
+ÚNICO. Se EXPIDE la Ley de Juicio Político del Estado de San Luis Potosí, para quedar como sigue
+LEY DE JUICIO POLÍTICO DEL ESTADO DE SAN LUIS POTOSÍ
