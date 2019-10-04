@@ -1,5 +1,5 @@
 CÓDIGO PROCESAL ADMINISTRATIVO PARA EL ESTADO DE SAN LUIS POTOSÍ
-Código publicado en la Edición Extraordinaria del Periódico Oficial del Gobierno del Estado de San Luis Potosí, el martes 18 de julio de 2017.
+Código publicado en la Edición Extraordinaria del Periódico Oficial del Estado de San Luis Potosí, el martes 18 de julio de 2017.
 Juan Manuel Carreras López, Gobernador Constitucional del Estado Libre y Soberano de San Luis Potosí, a sus habitantes sabed: Que el Congreso del Estado ha Decretado lo siguiente:
 DECRETO 0674
 La Sexagésima Primera Legislatura Constitucional del Estado Libre y Soberano de San Luis Potosí
