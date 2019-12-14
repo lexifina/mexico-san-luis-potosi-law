@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2019)
+ARTÍCULO 286 BIS. Al que presente acusación, denuncia o querella en contra de otro, atribuyéndole un hecho determinado que la ley señale como delito, con pleno conocimiento de que ese hecho es falso, se impondrán, de dos a seis años de prisión y sanción pecuniaria por el equivalente de cincuenta a quinientas unidades de medida y actualización. Asimismo, como reparación de daño se impondrá el equivalente de trescientas a quinientas unidades de medida y actualización.
+Sólo se procederá contra el autor de este delito, en virtud de sentencia ejecutoriada o auto de sobreseimiento dictado por el órgano jurisdiccional que hubiese conocido del delito imputado.
+No se aplicará sanción alguna al autor de la acusación, denuncia, o querella, si los hechos en los que se base son ciertos, aunque no constituyan un delito, y por error les haya atribuido ese carácter.
