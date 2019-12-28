@@ -1,0 +1,4 @@
+P.O. 27 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0455.- SE REFORMAN LOS ARTÍCULOS 83 Y 84 DE LA LEY ESTATAL DE PROTECCIÓN A LOS ANIMALES; Y SE REFORMA, DE LA PARTE ESPECIAL, LA DENOMINACIÓN DEL TÍTULO DÉCIMO QUINTO Y DEL CAPÍTULO V; ASÍ COMO LOS ARTÍCULOS 309 Y 317; Y ADICIONA AL ARTÍCULO 311 EL PÁRRAFO TERCERO, DEL CÓDIGO PENAL DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.

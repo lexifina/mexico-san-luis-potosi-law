@@ -1,0 +1,6 @@
+P.O. 27 DE DICIEMBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0449.- SE REFORMAN LOS ARTÍCULOS 54, 78, 79, 80 Y 81; Y ADICIONAN LOS ARTÍCULOS 79 BIS Y 79 TER DE LA LEY DE LA COMISIÓN ESTATAL DE DERECHOS HUMANOS DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado "Plan de San Luis".
+SEGUNDO. El Congreso del Estado, dentro de los treinta días hábiles siguientes a la entrada en vigor del presente Decreto, deberá iniciar el proceso para la elección de las autoridades, Investigadora; y Substanciadora, integrantes del Órgano Interno de Control, de la Comisión Estatal de Derechos Humanos del Estado de San Luis Potosí.
+TERCERO. Los titulares de las autoridades, Investigadora; y Substanciadora, integrantes del Órgano Interno de Control, de la Comisión Estatal de Derechos Humanos del Estado de San Luis Potosí, que a la entrada en vigor de este Decreto se encuentren en funciones, seguirán en el cumplimiento de su cargo, hasta en tanto el Congreso del Estado elija a quienes deban suplirlos, en los términos precisados en el Transitorio que antecede.
+CUARTO. Se derogan las disposiciones que se opongan al presente Decreto.
