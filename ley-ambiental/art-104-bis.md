@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE ENERO DE 2020)
+ARTICULO 104 BIS. Los productores y/o distribuidores de contenedores y popotes biodegradables, compostables o reciclados, presentarán ante la SEGAM para su registro y previa comercialización, la validación de composición, porcentaje y tiempo de degradación en los términos de lo descrito en la fracción IX del artículo 107 de esta ley; dicho estudio deberá ser emitido por alguna institución o laboratorio de carácter público con la capacidad científica y tecnológica para realizar dichos ensayos.
+La SEGAM podrá autorizar o negar el registro respectivo, dictaminando en un plazo no mayor a veinte días hábiles.

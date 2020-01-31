@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE ENERO DE 2020)
+ARTICULO 104 QUATER. Los productores y/o distribuidores de contenedores y popotes biodegradables, compostables o cien por ciento reciclados, están obligados a indicar en sus empaques el número de registro otorgado por la SEGAM, así como la composición, porcentaje de biodegradabilidad y/o compostabilidad en los términos de lo descrito en la fracción IX del artículo 107 de la presente Ley.
