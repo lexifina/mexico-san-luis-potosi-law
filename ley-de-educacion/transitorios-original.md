@@ -1,0 +1,22 @@
+Transitorios
+PRIMERO. La presente Ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado "Plan de San Luis".
+SEGUNDO. A la entrada en vigor de este Decreto se abroga la Ley de Educación del Estado de San Luis Potosí, publicada el 16 de junio de 1995 en el Periódico Oficial del Estado; y se derogan todas las disposiciones contenidas en las demás leyes estatales; asimismo, quedan sin efecto los reglamentos, acuerdos, y disposiciones de carácter general, contrarias al presente Decreto.
+TERCERO. La Secretaría deberá emitir y adecuar los reglamentos, acuerdos, lineamientos y demás disposiciones de carácter general conforme a lo establecido en este Decreto, en un plazo no mayor a ciento ochenta días hábiles siguientes contados a partir de su entrada en vigor. Hasta su emisión, seguirán aplicándose para la operación y funcionamiento de los servicios que se presten y se deriven de aquellos en lo que no contravengan a este Decreto.
+Los procedimientos y trámites que se iniciaron con anterioridad a la entrada en vigor de este Decreto, continuarán, hasta su conclusión, regidos con las disposiciones en los cuales se fundamentaron.
+CUARTO. Las erogaciones que se generen con motivo de la entrada en vigor del presente Decreto, se realizarán con cargo a la disponibilidad presupuestaria que se apruebe para tal fin al sector educativo en el ejercicio fiscal de que se trate. Para los ejercicios fiscales subsecuentes, el Congreso del Estado, deberá prever, con base en la iniciativa de Presupuesto de Egreso que al efecto presente el Poder Ejecutivo Estatal, el incremento progresivo de los recursos presupuestarios correspondientes, con el objeto de cumplir con las obligaciones que tendrán a su cargo las autoridades competentes.
+La educación inicial, como educación básica, de manera gradual, se estará a lo dispuesto por la autoridad educativa federal, por ser quien tiene la atribución legal de determinar para toda la República, lo principios rectores y objetivos de su implementación, así como a la disponibilidad presupuestaria que específicamente se destine para garantizar su cumplimiento, ello, sin detrimento de la planeación que realicen las autoridades Estatal y Municipales.
+QUINTO. Las autoridades educativas, en coordinación con las autoridades correspondientes, realizarán consultas de buena fe y de manera previa, libre e informada, de acuerdo con las disposiciones legales nacionales e internacionales en la materia, a pueblos indígenas y comunidades afromexicanas relativo a la aplicación de las disposiciones que, en materia de educación indígena, son contempladas en este Decreto; hasta en tanto, las autoridades educativas no realizarán ninguna acción derivada de la aplicación de dichas disposiciones.
+SEXTO. La Comisión Estatal de Planeación y Programación del Sistema de Educación Media Superior del Estado de San Luis Potosí, prevista en el artículo 28 de esta Ley, deberá quedar instalada en un plazo de sesenta días contados a partir de la entrada en vigor del mismo.
+SÉPTIMO. El sistema integral de formación, capacitación y actualización del Estado de San Luis Potosí, previsto en el artículo 90 de este Ordenamiento, deberá instalarse antes de finalizar el año 2020.
+OCTAVO. El Gobierno del Estado y los gobiernos municipales, de conformidad con lo establecido en el Acuerdo Nacional para la Modernización Educativa, reconocen a las secciones, 26; y 52, del Sindicato Nacional de Trabajadores de la Educación, como representantes legales de los trabajadores de la educación en el Estado.
+Lo tendrá entendido el Ejecutivo del Estado, lo hará publicar, circular y obedecer.
+D A D O en el salón de sesiones "Ponciano Arriaga Leija" del Honorable Congreso del Estado, el catorce de mayo del dos mil veinte.
+Honorable Congreso del Estado. Por la Directiva. Presidente: Diputado Martín Juárez Córdova; Primera Secretaria: Diputada Vianey Montes Colunga; Segunda Secretaria: Diputada Angélica Mendoza Camacho. (Rúbricas)
+Por tanto, mando se cumpla y ejecute el presente Decreto y que todas las autoridades lo hagan cumplir y guardar y al efecto se imprima, publique y circule a quienes corresponda.
+D A D O en el Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de San Luis Potosí, el día catorce del mes de mayo del año dos mil veinte.
+El Gobernador Constitucional del Estado
+Juan Manuel Carreras López
+(Rúbrica)
+El Secretario General de Gobierno
+Alejandro Leal Tovías
+(Rúbrica)
