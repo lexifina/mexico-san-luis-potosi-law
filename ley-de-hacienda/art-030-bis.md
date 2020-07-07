@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2020)
+ARTICULO 30 BIS. Las personas físicas o morales que en su carácter de intermediaros, promotoras o facilitadoras que intervengan a través de aplicaciones, plataformas digitales y similares en el cobro de las contraprestaciones por servicios de hospedaje, deberán inscribirse en el padrón de contribuyentes como retenedores de impuesto.
+Los sujetos de este impuesto que obtengan el ingreso por los servicios de hospedaje mediante los cobros que realicen los intermediarios, promotoras o facilitadoras a través de las aplicaciones, plataformas tecnológicas y similares, podrán acreditar el impuesto retenido contra el impuesto que hubieran causado.
