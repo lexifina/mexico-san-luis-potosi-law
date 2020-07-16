@@ -1,0 +1,4 @@
+P.O. 16 DE JULIO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0719.- SE REFORMA LOS ARTÍCULOS 3° EN SUS FRACCIONES XXXV Y XXXVI, 8º EN SUS FRACCIONES III Y IV Y 330 EN SU FRACCIÓN X; Y ADICIONA A LOS ARTÍCULOS 3º LA FRACCIÓN XXXVII, 4º LA FRACCIÓN LVIII BIS Y 8º LA FRACCIÓN V, DE LA LEY DE ORDENAMIENTO TERRITORIAL Y DESARROLLO URBANO DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto iniciará su vigencia a partir de su publicación en el Periódico Oficial del Gobierno del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
