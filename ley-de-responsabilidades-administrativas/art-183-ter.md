@@ -1,2 +1,0 @@
-(ADICIONADA, P.O. 21 DE ENERO DE 2011)
-ARTÍCULO 183 TER.- Se sancionará con pena de tres a quince años de prisión y. de 100 a 750 días multa, si el robo se realiza en edificio, vivienda, aposento o cuarto que estén habitados o destinados para habitación, comprendiéndose en esta denominación no sólo los que estén fijos en la tierra, sino también los móviles, sea cual fuere la materia de que estén construidos.

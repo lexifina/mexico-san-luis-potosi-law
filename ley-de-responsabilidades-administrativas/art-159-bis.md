@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 22 DE ABRIL DE 2011)
-ARTICULO 159 BIS.- El que para descubrir los secretos o vulnerar la intimidad de otro, sin el consentimiento de éste, se apodere de sus papeles, cartas, mensajes de correo electrónico o cualesquiera otros documentos o efectos personales o intercepte sus telecomunicaciones o utilice artificios técnicos de escucha, transmisión, grabación o reproducción del sonido o de la imagen o de cualquier otra señal de comunicación, se le impondrán de seis meses a tres años de prisión y de cien a trescientos días multa.
