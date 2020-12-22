@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2020)
+ARTICULO 19 DECIES. Los operadores de los establecimientos en donde se realicen los juegos con apuestas o en los que se instalen las máquinas de juegos, en adición a la obligación de recaudar y enterar el impuesto a que se refiere el artículo 19 OCTIES, están obligados a expedir comprobantes por cada contraprestación que cobren, incluyendo la carga y recarga que otorguen a quienes utilicen las máquinas de juegos, en las que conste expresamente y por separado el impuesto recaudado.
