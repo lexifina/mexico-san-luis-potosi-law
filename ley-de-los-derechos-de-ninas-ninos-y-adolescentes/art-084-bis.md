@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE FEBRERO DE 2021)
+ARTÍCULO 84 BIS. El Sistema Estatal DIF o los sistemas municipales correspondientes, mediante una evaluación apegada a las garantías de seguridad y privacidad, identificarán a niñas, niños o adolescentes extranjeros que sean susceptibles de reconocimiento de condición de refugiado o de asilo. En caso de identificación positiva se notificará al Instituto Nacional de Migración, con el fin de aplicar en su beneficio las medidas de protección especial que resulten necesarias.
