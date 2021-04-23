@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE ABRIL DE 2021)
+ARTICULO 35 BIS.- Las mujeres y hombres trabajadores gozarán mínimo de un permiso al año, con goce íntegro de su sueldo, de conformidad con su estado de salud debidamente acreditado, con el objetivo de poder someterse a la realización de estudios médicos generales y de especialidad, para proteger su salud, prevenir y evitar futuras enfermedades o atender de manera inmediata las existentes.
