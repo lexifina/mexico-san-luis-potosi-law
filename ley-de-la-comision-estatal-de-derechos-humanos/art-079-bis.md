@@ -1,5 +1,5 @@
-(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2019)
-ARTICULO 79 BIS. Las autoridades, Investigadora; y Substanciadora, integrantes del Órgano Interno de Control, serán electas, previa convocatoria pública, por el Congreso del Estado, con el voto de la mayoría de sus miembros presentes. Durarán en su encargo cuatro años, y podrán ser reelectas por una sola vez; no podrán ser removidas sino por los casos y causas que establezcan las leyes de la materia.
+(REFORMADO PRIMER PÁRRAFO, P.O. 13 DE SEPTIEMBRE DE 2021)
+ARTICULO 79 BIS. Las autoridades, Investigadora; y Substanciadora, integrantes del Órgano Interno de Control, serán electas, previa convocatoria pública, por el Congreso del Estado, con el voto de la mayoría de sus miembros. Durarán en su encargo cuatro años, y podrán ser reelectas por una sola vez; no podrán ser removidas sino por causa justificada, debidamente fundada y motivada cuando así lo determine el Pleno del Congreso por mayoría de sus integrantes, y el nuevo nombramiento será por el término que le reste a la autoridad sujeta a remoción.
 (ADICIONADO, P.O. 20 DE AGOSTO DE 2020)
 El Congreso del Estado realizará la elección de las personas titulares de las autoridades, Investigadora; y Sustanciadora, bajo el principio de paridad de género. En razón de lo anterior, cada periodo de ejercicio legal se alternará entre una mujer y un hombre, salvo en los casos en que se verifique la reelección para el ejercicio de un segundo periodo, en donde la alternancia se realizará a la conclusión de éste.
 (ADICIONADO, P.O. 20 DE AGOSTO DE 2020)
