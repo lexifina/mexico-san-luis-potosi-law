@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 1 DE JULIO DE 2022)
+ARTÍCULO 101 TER. Las contralorías internas de los organismos operadores de agua potable y conexos contarán con áreas, investigadora; y substanciadora; correspondiendo a la primera, la investigación de faltas administrativas; y a la segunda, dirigir y conducir el procedimiento de responsabilidades administrativas, desde la admisión del informe de presunta responsabilidad administrativa, y hasta la conclusión de la audiencia inicial, en los términos de la Ley de Responsabilidades Administrativas para el Estado y Municipios de San Luis Potosí.
+Las personas encargadas de las áreas: investigadora; y substanciadora, serán designadas como lo establece el párrafo segundo del artículo 101 de esta Ley.
