@@ -1,0 +1,7 @@
+P.O. 14 DE OCTUBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0397.- SE REFORMAN LOS ARTÍCULOS 34, 36, 37, 39 Y 41; Y ADICIONA LOS Y A LOS ARTÍCULOS 34 BIS, 35 EL PÁRRAFO SEGUNDO, 36 BIS, 36 TER, 36 QUÁTER, 36 QUINQUE, 36 SEXTIES, 36 SEPTIES, 42 BIS, 42 TER, 42 QUÁTER, 42 QUINQUE, 42 SEXTIES, 42 SEPTIES, 42 OCTIES, 42 NONIES Y 42 DECIES, DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+TERCERO. El Ejecutivo del Estado; y el Poder Judicial del Estado, deberán elaborar y aplicar, en un plazo no mayor a ciento veinte días contados a partir de la publicación de este Decreto, un plan de capacitación a todo el personal administrativo, ministerial, y judicial, sobre el contenido de este Decreto.
+CUARTO. Las acciones contenidas en el presente Decreto y que concurren con las medidas establecidas en la Ley de Atención a Víctimas para el Estado de San Luis Potosí, se implementarán conforme a lo establecido en ese Ordenamiento.
+QUINTO. Las obligaciones que se generen con motivo de la entrada en vigor de este Decreto, se sujetarán a la disponibilidad presupuestaria de los ejecutores de gasto responsables para el presente ejercicio fiscal y los subsecuentes, por lo que no se autorizarán recursos adicionales para tales efectos.
