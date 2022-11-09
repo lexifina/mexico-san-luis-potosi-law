@@ -4,5 +4,5 @@ FERNANDO SILVA NIETO, Gobernador Constitucional del Estado Libre y Soberano de S
 Que la Quincuagésima Sexta Legislatura Constitucional del Estado se ha servido dirigirme el siguiente:
 DECRETO 191
 LA QUINCUAGESIMA SEXTA LEGISLATURA CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSI, DECRETA LO SIGUIENTE:
-...
+[...]
 LEY DE PLANEACION DEL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSI
