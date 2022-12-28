@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2022)
+ARTICULO 83 BIS. En materia de prevención y control de la contaminación atmosférica producida por fuentes fijas, la SEGAM deberá emitir la Norma Técnica Ecológica Estatal, en la cual establezca disposiciones y lineamientos de carácter técnicos que deben reunir los sitios destinados a la instalación y reubicación, en su caso de aquellos lugares en los que se elaboren o producen elementos de construcción de tipo como ladrillos y demás similares, con base en lo dispuesto por el párrafo segundo del artículo 4° de esta Ley.
