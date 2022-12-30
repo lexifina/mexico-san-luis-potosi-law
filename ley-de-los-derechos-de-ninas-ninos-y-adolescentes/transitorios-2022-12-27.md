@@ -1,0 +1,4 @@
+P.O. 27 DE DICIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0568.- SE REFORMA EL ARTÍCULO 30 TER EN SU PÁRRAFO TERCERO; Y ADICIONA AL MISMO ARTÍCULO 30 TER UN PÁRRAFO, ESTE COMO CUARTO, POR LO QUE ACTUALES, CUARTO, Y QUINTO, PASAN A SER PÁRRAFOS, QUINTO, Y SEXTO DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entra en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
