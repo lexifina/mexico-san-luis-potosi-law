@@ -15,3 +15,4 @@ Juan Manuel Carreras López
 El Secretario General de Gobierno
 Alejandro Leal Tovías
 (Rúbrica)
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETO DE REFORMAS AL PRESENTE ORDENAMIENTO.]
