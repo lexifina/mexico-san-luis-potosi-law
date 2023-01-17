@@ -4,7 +4,7 @@ Juan Manuel Carreras López, Gobernador Constitucional del Estado Libre y Sobera
 DECRETO 0675
 La Sexagésima Segunda Legislatura Constitucional del Estado Libre y Soberano de San Luis Potosí, Decreta
 EXPOSICIÓN DE MOTIVOS
-[…]
+[...]
 ÚNICO. Se expide la Ley de Educación del Estado de San Luis Potosí, para quedar como sigue:
 LEY DE EDUCACIÓN DEL ESTADO DE SAN LUIS POTOSÍ
 TÍTULO PRIMERO
