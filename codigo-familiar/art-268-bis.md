@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE ENERO DE 2023)
+ARTICULO 268 BIS. Las personas integrantes de la familia, en particular niñas, niños y adolescentes, tienen derecho a que los demás miembros les respeten su dignidad e integridad personal; a recibir afecto y buen trato; a ser protegido; ser educado, y criado con métodos no violentos, basados en la crianza positiva, el amor, el diálogo y el respeto. Al efecto, contará con la asistencia y protección de las instituciones públicas estatales de acuerdo con las leyes.

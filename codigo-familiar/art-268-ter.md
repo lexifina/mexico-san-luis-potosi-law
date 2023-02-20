@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE ENERO DE 2023)
+ARTICULO 268 TER. Se prohíbe que la madre, el padre, otros familiares, o quienes ejerzan la patria potestad, tutela, guarda, o custodia, impongan como método correctivo o disciplinario, el castigo corporal; humillante; o cualquier tipo de práctica que lesione la integridad personal de la niña, niño, o adolescente, de conformidad con lo dispuesto en el artículo 92 de la Ley de Derechos de Niñas, Niños y Adolescentes de San Luis Potosí.
