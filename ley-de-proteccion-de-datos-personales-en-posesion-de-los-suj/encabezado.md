@@ -4,7 +4,7 @@ Juan Manuel Carreras López, Gobernador Constitucional del Estado Libre y Sobera
 DECRETO 0675
 La Sexagésima Primera Legislatura Constitucional del Estado Libre y Soberano de San Luis Potosí
 EXPOSICIÓN DE MOTIVOS
-[…]
+[...]
 ÚNICO. Se expide la Ley de Protección de Datos Personales del Estado de San Luis Potosí; para quedar como sigue:
 (REFORMADA SU DENOMINACIÓN, P.O. 14 DE DICIEMBRE DE 2017)
 Ley de Protección de Datos Personales en Posesión de los Sujetos Obligados del Estado de San Luis Potosí
