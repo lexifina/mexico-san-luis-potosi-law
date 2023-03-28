@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 27 DE MARZO DE 2023)
+ARTÍCULO 364 BIS. Comete el delito contra la seguridad vial quien sin causa justificada, arroja, coloca, o deposita en una vía pública estatal o municipal, cualquiera de las armas prohibidas a que se refiere la fracción II del artículo 287 de este Código, con el fin de dañar u ocasionar un mal funcionamiento de los neumáticos o cualquier parte de los vehículos de motor o vehículos impulsados exclusivamente por la fuerza humana que transitan por esas vías.
+Para efectos de este artículo, se entiende por vía pública a las calles, caminos, veredas, terracerías, avenidas, carreteras, autopistas o libramientos.
+Este delito se sancionará con una pena de dos a cinco años de prisión y sanción pecuniaria de doscientos a quinientos días del valor de la unidad de medida y actualización, más la reparación del daño.
