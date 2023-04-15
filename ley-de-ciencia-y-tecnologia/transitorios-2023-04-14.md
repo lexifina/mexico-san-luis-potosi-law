@@ -1,0 +1,6 @@
+P.O. 14 DE ABRIL DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0732.- SE REFORMA EL ARTÍCULO 40, SUS PÁRRAFOS PRIMERO Y SEGUNDO, DE LA LEY ELECTORAL DEL ESTADO. SE REFORMA EL ARTÍCULO 4º, SU FRACCIÓN IV, DE LA LEY ORGÁNICA DEL CONSEJO POTOSINO DE CIENCIA Y TECNOLOGÍA DEL ESTADO. SE REFORMAN LOS ARTÍCULOS 9º, 10, 11, 12, 13 SU PÁRRAFO PRIMERO, 14, 15 SU PÁRRAFO PRIMERO, 16, 18, 19 Y 20; ADICIONA LOS ARTÍCULOS 18 BIS Y 20 BIS; Y DEROGA DEL ARTÍCULO 13, SUS PÁRRAFOS ÚLTIMO Y PENÚLTIMO, DE LA LEY DE CIENCIA Y TECNOLOGÍA DEL ESTADO".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. El Consejo Potosino de Ciencia y Tecnología deberá expedir las adecuaciones a los instrumentos jurídicos de los fondos que así lo ameriten, en un plazo no mayor a sesenta días naturales.
+TERCERO. Una vez realizadas las adecuaciones a los instrumentos jurídicos de los fondos, el Consejo Potosino de Ciencia y Tecnología podrá realizar las gestiones necesarias para retirar los recursos económicos administrados por el Consejo Estatal Electoral y de Participación Ciudadana.
+CUARTO. Se derogan todas las disposiciones que se opongan al presente Decreto.
