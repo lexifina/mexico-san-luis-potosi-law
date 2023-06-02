@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE JUNIO DE 2023)
+ARTICULO 107 SEXTIES. Las sesiones del consejo potosino de organismos operadores descentralizados de agua se considerarán válidas siempre que cuenten con la concurrencia de la mayoría de sus miembros, y esté presente su presidente. Los acuerdos y resoluciones del consejo se tomarán por mayoría de votos de los asistentes; en caso de empate, la persona que presida tendrá voto de calidad. Los acuerdos y resoluciones del consejo no serán vinculantes.
