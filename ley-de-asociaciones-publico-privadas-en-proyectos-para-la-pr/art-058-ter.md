@@ -9,6 +9,7 @@ e) Las estimaciones de inversión y aportaciones, en efectivo y en especie, tant
 f) La conveniencia de llevar a cabo el proyecto mediante un esquema de prestación de servicios;
 g) La viabilidad económica y financiera del proyecto, y
 h) Las características esenciales del contrato para la Prestación de Servicios a celebrar. En el evento de que el proyecto considere la intervención de dos o más personas morales del sector privado, las responsabilidades de cada participante de dicho sector;
-II. Los proyectos que se encuentren en los supuestos señalados en los acuerdos que, en su caso, la dependencia o entidad competente haya expedido conforme al párrafo segundo del artículo 59 de la presente Ley, y
+(REFORMADA, P.O. 15 DE JUNIO DE 2023)
+II. Los proyectos que se encuentren en los supuestos señalados en los acuerdos que, en su caso, la dependencia o entidad competente haya expedido conforme al párrafo segundo del artículo 58 bis de la presente Ley, y
 III. No se trate de proyectos previamente presentados y ya resueltos.
 Si el proyecto no cumple con alguno de los requisitos, o los estudios se encuentran incompletos, el proyecto no será analizado.
