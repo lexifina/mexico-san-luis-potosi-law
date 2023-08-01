@@ -4,6 +4,6 @@ Dr. Fernando Toranzo Fernández, Gobernador Constitucional del Estado Libre y So
 DECRETO 370
 La Sexagésima Legislatura Constitucional del Estado Libre y Soberano de San Luis Potosí, Decreta
 EXPOSICIÓN DE MOTIVOS
-[…]
+[...]
 ÚNICO. Se EXPIDE, la Ley de Obras Públicas y Servicios Relacionados con las Mismas del Estado de San Luis Potosí, para quedar de la siguiente manera
 LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS DEL ESTADO DE SAN LUIS POTOSÍ
