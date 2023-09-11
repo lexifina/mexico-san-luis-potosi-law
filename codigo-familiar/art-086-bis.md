@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 30 DE MAYO DE 2017)
 ARTICULO 86 BIS. La o el cónyuge que desee promover juicio de divorcio incausado, además de cumplir con los requisitos que establece el artículo 253 del Código de Procedimientos Civiles para el Estado de San Luis Potosí, deberá acompañar a su escrito inicial de demanda, una copia certificada del acta de matrimonio y de las de nacimiento de sus hijas o hijos, copia simple de la solicitud y propuesta de convenio, tendiente a regular las consecuencias jurídicas de la disolución del vínculo matrimonial, mismo que deberá contener, por lo menos, los siguientes requisitos:
-I. La designación de la persona que tendrá la guarda y custodia de las o los hijos menores, o incapaces;
+(REFORMADA, P.O. 8 DE SEPTIEMBRE DE 2022)
+I. La designación de la persona que tendrá la guarda y custodia de las o los hijos menores, o incapaces; la cual, podrá quedar a cargo de uno solo de los cónyuges o ambos, en términos del artículo 300 BIS de este código;
 II. Las modalidades bajo las cuales el padre o madre, que no tenga la guarda y custodia, ejercerá el derecho de convivencia;
 III. La forma o términos bajo los cuales se atenderán o cubrirán las necesidades de las hijas o hijos y, en su caso, de la o el cónyuge a quien deba darse alimentos, tanto durante el procedimiento, como después de decretarse el divorcio, así como las medidas conducentes, en caso de que la mujer se encuentre encinta; especificándose forma, lugar y fecha del pago, así como la garantía para asegurar el debido cumplimiento;
 IV. La designación de la o el cónyuge al que corresponderá, en su caso, el uso del domicilio conyugal y el menaje de casa;
