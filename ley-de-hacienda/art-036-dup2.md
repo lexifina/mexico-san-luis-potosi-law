@@ -1,1 +1,2 @@
-ARTICULO 36 QUINQUE. (DEROGADO, P.O. 27 DE SEPTIEMBRE DE 2014)
+(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)
+ARTICULO 36 QUINQUE. Son sujetos y están obligados al pago de este impuesto, las personas físicas y morales, entidades o unidades económicas residentes en el Estado o los residentes fuera del Estado, que tengan instalaciones o fuentes fijas en las que se desarrollen las actividades que determinan las emisiones a la atmósfera gravadas por este impuesto dentro del Estado y su delimitación territorial.

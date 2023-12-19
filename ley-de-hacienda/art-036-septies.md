@@ -1,1 +1,4 @@
-ARTICULO 36 SEPTIES. (DEROGADO, P.O. 27 DE SEPTIEMBRE DE 2014)
+[N. DE E. VÉASE TABLA EN EL P.O. DE 18 DE DICIEMBRE DE 2023, PÁGINA 35.]
+(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)
+ARTICULO 36 SEPTIES. El impuesto a que se refiere esta sección se causará en el momento que los contribuyentes realicen emisiones a la atmósfera, gravadas por este impuesto que afecten en el Estado y en su demarcación territorial, aplicando una cuota impositiva por el equivalente (sic) 3 UMA por tonelada emitida de bióxido de carbono o la conversión del mismo, establecida en el artículo anterior.
+El Poder Ejecutivo del Estado a través de la Secretaría de Finanzas, podrá otorgar estímulos fiscales en forma general a sectores de contribuyentes, con el objetivo de incentivar la recaudación, promover la creación de empleos o el desarrollo económico del Estado, la innovación tecnológica y el uso de energías limpias.

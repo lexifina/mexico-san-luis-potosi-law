@@ -1,1 +1,4 @@
-ARTICULO 36 SEXTIES. (DEROGADO, P.O. 27 DE SEPTIEMBRE DE 2014)
+(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)
+ARTICULO 36 SEXTIES. La base de este impuesto es la cuantía de carga contaminante de las emisiones gravadas que se realicen desde la o las instalaciones o fuentes fijas expresadas en toneladas.
+Para la determinación de la base gravable, el contribuyente realizará mediante medición o estimación directa de las emisiones que genere y, en su caso, se tomará como referencia el último Registro de Emisiones y Transferencias de Contaminantes (RETC) de la Secretaría del Medio Ambiente y Recursos Naturales del Gobierno Federal, así como de los reportes de emisiones presentados por las fuentes fijas de jurisdicción Estatal a través de la Cedula de Operación Anual (COA) a la Secretaría de Ecología y Gestión Ambiental.
+Para la determinación de las toneladas emitidas, el contribuyente realizará la conversión de los gases establecidos en el artículo 36 QUATER, en bióxido de carbono (CO2), multiplicando la tonelada del tipo de gas emitido por el factor relacionado conforme a la tabla siguiente:
