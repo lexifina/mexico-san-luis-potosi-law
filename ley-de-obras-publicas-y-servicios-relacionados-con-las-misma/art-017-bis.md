@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE ENERO DE 2024)
+ARTÍCULO 17 BIS. Las dependencias, entidades y organismos que realicen obras públicas, podrán establecer convenios de vinculación con las instituciones de educación superior en el Estado, y con las empresas que desarrollen este tipo de obras, con la finalidad de promover el primer empleo en la ejecución de obras públicas; de acuerdo al área aplicable y a las condiciones de viabilidad, con el objetivo de apoyar su formación profesional.
