@@ -1,0 +1,6 @@
+P.O. 31 DE ENERO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 1001.- SE REFORMA DEL ARTÍCULO 23 EN SU PRIMER PÁRRAFO, LAS FÓRMULAS, ASÍ COMO LOS ELEMENTOS SEGUNDO, TERCERO, CUARTO Y SEXTO, DE LA LEY DE COORDINACIÓN FISCAL DEL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ. SE ESTABLECEN LOS COEFICIENTES APLICABLES PARA EL PAGO DE PARTICIPACIONES E INCENTIVOS A MUNICIPIOS DEL ESTADO DE SAN LUIS POTOSÍ PARA EL EJERCICIO FISCAL 2024".]
+PRIMERO. El artículo primero de este Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. El artículo segundo de este Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+TERCERO. La Secretaría de Finanzas, una vez enterada de las actualizaciones de los criterios para la aplicación del coeficiente del 30% del Excedente de (sic) Fondo de Fomento Municipal deberá efectuar las actualizaciones correspondientes de acuerdo con los montos autorizados por la Unidad de Coordinación con Entidades Federativas de la Secretaría de Hacienda y Crédito Público, debiendo divulgar la actualización en el Periódico Oficial del Estado "Plan de San Luis".
+CUARTO. Se derogan las disposiciones que se opongan al presente Decreto.
