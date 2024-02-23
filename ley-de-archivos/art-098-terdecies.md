@@ -1,0 +1,7 @@
+(ADICIONADO CON LOS CAPÍTULOS Y ARTÍCULOS QUE LO INTEGRAN, P.O. 20 DE FEBRERO DE 2024)
+TÍTULO SÉPTIMO
+DEL ARCHIVO HISTÓRICO DEL ESTADO
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 20 DE FEBRERO DE 2024)
+CAPÍTULO ÚNICO
+(ADICIONADO, P.O. 20 DE FEBRERO DE 2024)
+ARTÍCULO 98 TERDECIES. El Archivo Histórico del Estado se organizará y funcionará en los términos establecido (sic) en esta Ley, su Decreto de creación y Reglamento Interno.

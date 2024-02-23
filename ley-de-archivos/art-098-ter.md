@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE FEBRERO DE 2024)
+ARTÍCULO 98 TER. El Archivo General del Estado es la entidad especializada en materia de archivos, que tiene por objeto promover la organización y administración homogénea de archivos, preservar, incrementar y difundir el patrimonio documental del Estado, con el fin de salvaguardar la memoria del Estado de corto, mediano y largo plazo; así como contribuir a la transparencia y rendición de cuentas.
