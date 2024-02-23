@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE FEBRERO DE 2024)
+ARTÍCULO 27 QUÁTER. Si el delito fuera cometido por las personas indicadas en la fracción II del artículo 27 BIS, la persona jurídica quedará excluida de responsabilidad si, antes de la comisión del delito, ha adoptado y ejecutado eficazmente un modelo de organización, gestión y prevención que resulte idóneo y adecuado para prevenir delitos de la naturaleza del que fue cometido o para reducir de forma significativa el riesgo de su comisión y, además, que los autores individuales han cometido el delito eludiendo fraudulentamente dicho modelo.
+En los casos en los que la anterior circunstancia solamente pueda ser objeto de acreditación parcial, será valorada para los efectos de atenuación de la pena.
