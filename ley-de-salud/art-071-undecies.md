@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE MARZO DE 2024)
+ARTICULO 71 UNDECIES. La oferta de los servicios que se haga a través de medios informativos, ya sean impresos, electrónicos u otros, por profesionistas que ejerzan cirugía plástica, estética o reconstructiva; así como, los establecimientos o unidades médicas en que se practiquen dichas cirugías, deberán prever y contener con claridad en su publicidad los requisitos que se mencionan en los artículos 71 Quáter, 71 Octies, 71 Decies de esta Ley y lo previsto por el Capítulo Único del Título Décimo Tercero de la Ley General de Salud.

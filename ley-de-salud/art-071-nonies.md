@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 12 DE MARZO DE 2024)
+ARTICULO 71 NONIES. Los médicos especialistas podrán pertenecer a una agrupación médica, cuyas bases de organización y funcionamiento estarán a cargo de las asociaciones, sociedades, colegios o federaciones de profesionales de su especialidad; agrupaciones que se encargan de garantizar el profesionalismo y ética de los expertos en esta práctica de la medicina.
+El Comité Normativo Nacional de Consejos de Especialidades Médicas y los Consejos de Especialidades Médicas para la aplicación del presente artículo y lo dispuesto en el Título Cuarto de la presente Ley, se sujetarán a las disposiciones que emita la Secretaría de Salud.
+Para efectos de la validez a que alude la fracción II del artículo anterior, debe acreditarse la recertificación cada cinco años.
