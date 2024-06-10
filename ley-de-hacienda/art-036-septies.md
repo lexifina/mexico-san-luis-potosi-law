@@ -1,4 +1,6 @@
-[N. DE E. VÉASE TABLA EN EL P.O. DE 18 DE DICIEMBRE DE 2023, PÁGINA 35.]
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)
 ARTICULO 36 SEPTIES. El impuesto a que se refiere esta sección se causará en el momento que los contribuyentes realicen emisiones a la atmósfera, gravadas por este impuesto que afecten en el Estado y en su demarcación territorial, aplicando una cuota impositiva por el equivalente (sic) 3 UMA por tonelada emitida de bióxido de carbono o la conversión del mismo, establecida en el artículo anterior.
-El Poder Ejecutivo del Estado a través de la Secretaría de Finanzas, podrá otorgar estímulos fiscales en forma general a sectores de contribuyentes, con el objetivo de incentivar la recaudación, promover la creación de empleos o el desarrollo económico del Estado, la innovación tecnológica y el uso de energías limpias.
+(REFORMADO, P.O. 7 DE JUNIO DE 2024)
+El Poder Ejecutivo del Estado a través de la Secretaría de Finanzas, podrá otorgar estímulos fiscales en forma general a sectores de contribuyentes, con el objetivo de prevenir y remediar el deterioro ambiental; la innovación tecnológica y el uso de energías limpias; incentivar la recaudación, promover la creación de empleos y el desarrollo económico del Estado.
+(ADICIONADO, P.O. 7 DE JUNIO DE 2024)
+Los recursos recaudados podrán destinarse al Fondo Ambiental Público establecido en el artículo 180 de la Ley Ambiental del Estado de San Luis Potosí, así como al Fondo para el Cambio Climático, señalado en el artículo 46 de la Ley de Cambio Climático para el Estado de San Luis Potosí, tomando en consideración las necesidades del Estado.

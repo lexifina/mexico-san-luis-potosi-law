@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)
-ARTICULO 36 QUINQUE. Son sujetos y están obligados al pago de este impuesto, las personas físicas y morales, entidades o unidades económicas residentes en el Estado o los residentes fuera del Estado, que tengan instalaciones o fuentes fijas en las que se desarrollen las actividades que determinan las emisiones a la atmósfera gravadas por este impuesto dentro del Estado y su delimitación territorial.
+(REFORMADO, P.O. 7 DE JUNIO DE 2024)
+ARTICULO 36 QUINQUE. Son sujetos y están obligados al pago de este impuesto los que define la fracción XI del artículo 36 TER de esta Ley.

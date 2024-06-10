@@ -1,7 +1,7 @@
 P.O. 18 DE DICIEMBRE DE 2023.
 [N. DE E. TRANSITORIOS DEL "DECRETO 0898.- SE EXPIDE LA LEY DE INGRESOS DEL ESTADO DE SAN LUIS POTOSÍ, PARA EL EJERCICIO FISCAL 2024. SE REFORMA EL ARTÍCULO 93 TER; SE ADICIONA UN CAPÍTULO VI DENOMINADO DE LOS "IMPUESTOS ECOLÓGICOS" AL TÍTULO SEGUNDO DE LOS "IMPUESTOS", CON SUS SECCIONES PRIMERA Y SEGUNDA Y SUS ARTÍCULOS 36 BIS, 36 TER, 36 QUATER, 36 QUINQUE, 36 SEXTIES, 36 SÉPTIES, 36 OCTIES Y 36 NONIES Y SE DEROGA EL INCISO A) DE LA FRACCIÓN V DEL ARTÍCULO 66, DE LA LEY DE HACIENDA PARA EL ESTADO DE SAN LUIS POTOSÍ".]
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis"; con excepción de lo establecido en el artículo segundo transitorio.
-(REFORMADO, P.O. 26 DE MARZO DE 2024)
-SEGUNDO. Las Adiciones que refieren al Capítulo VI denominado de los "Impuestos Ecológicos" al Título Segundo de los "Impuestos" con sus Secciones, Primera y Segunda, y sus artículos, 36 BIS, 36 TER, 36 QUATER, 36 QUINQUE, 36 SEXTIES, 36 SÉPTIES, 36 OCTIES y 36 NONIES, entrarán en vigor a partir del 10 de junio de 2024.
+(REFORMADO, P.O. 7 DE JUNIO DE 2024)
+SEGUNDO. Las Adiciones que refieren al Capítulo VI denominado de los "Impuestos Ecológicos" al Título Segundo de los "Impuestos" con sus Secciones, Primera y Segunda, y sus artículos, 36 BIS, 36 TER, 36 QUATER, 36 QUINQUE, 36 SEXTIES, 36 SÉPTIES, 36 OCTIES y 36 NONIES, entrarán en vigor el día uno de julio de 2024.
 TERCERO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
 CUARTO. Se faculta a la Secretaría de Finanzas del Poder Ejecutivo del Estado para que emita las Reglas de Operación necesarias para la correcta y debida aplicación de las disposiciones establecidas en el Capítulo VI del presente Decreto.
