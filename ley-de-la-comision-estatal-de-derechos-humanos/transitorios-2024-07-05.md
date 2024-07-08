@@ -1,0 +1,4 @@
+P.O. 5 DE JULIO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 1068.- SE REFORMA EL PÁRRAFO SEGUNDO DEL ARTÍCULO 79 Y EL PÁRRAFO SEGUNDO DEL ARTÍCULO 79 BIS; Y DEROGA EL PÁRRAFO TERCERO DEL ARTÍCULO 79 Y EL PÁRRAFO TERCERO DEL ARTÍCULO 79 BIS, TODAS DE LA LEY DE LA COMISIÓN ESTATAL DE DERECHOS HUMANOS DEL ESTADO SAN LUIS POTOSÍ".]
+PRIMERO. El presente Decreto será vigente al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan las disposiciones que se opongan al presente Decreto.

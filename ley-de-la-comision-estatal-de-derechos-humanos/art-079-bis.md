@@ -1,9 +1,8 @@
 (REFORMADO PRIMER PÁRRAFO, P.O. 13 DE SEPTIEMBRE DE 2021)
 ARTICULO 79 BIS. Las autoridades, Investigadora; y Substanciadora, integrantes del Órgano Interno de Control, serán electas, previa convocatoria pública, por el Congreso del Estado, con el voto de la mayoría de sus miembros. Durarán en su encargo cuatro años, y podrán ser reelectas por una sola vez; no podrán ser removidas sino por causa justificada, debidamente fundada y motivada cuando así lo determine el Pleno del Congreso por mayoría de sus integrantes, y el nuevo nombramiento será por el término que le reste a la autoridad sujeta a remoción.
-(ADICIONADO, P.O. 20 DE AGOSTO DE 2020)
-El Congreso del Estado realizará la elección de las personas titulares de las autoridades, Investigadora; y Sustanciadora, bajo el principio de paridad de género. En razón de lo anterior, cada periodo de ejercicio legal se alternará entre una mujer y un hombre, salvo en los casos en que se verifique la reelección para el ejercicio de un segundo periodo, en donde la alternancia se realizará a la conclusión de éste.
-(ADICIONADO, P.O. 20 DE AGOSTO DE 2020)
-En la convocatoria pública a que se refiere este artículo, sólo se convocará al género que corresponda en turno ocupar las titularidades de las autoridades, Investigadora; y Sustanciadora, respectivamente, en donde las únicas personas que podrán participar del género opuesto al convocado, lo serán aquellas quienes ocupen las titularidades de dichas autoridades, y presenten sus candidaturas para su reelección.
+(REFORMADO, P.O. 5 DE JULIO DE 2024)
+El Congreso del Estado realizará la elección de las personas titulares de las autoridades, Investigadora; y Sustanciadora, bajo el principio de paridad de género.
+(DEROGADO TERCER PÁRRAFO, P.O. 5 DE JULIO DE 2024)
 En la elección de las autoridades, Investigadora; y Substanciadora, el Congreso del Estado se sujetará a lo siguiente:
 I. Nombrará una Comisión Especial de cinco legisladores, encargada de sustanciar el procedimiento en los términos del presente artículo;
 II. La Comisión Especial emitirá una convocatoria pública, en la que se establecerán las bases a que se sujetará la elección de las autoridades, Investigadora; y Substanciadora, así como los requisitos que deberán cubrir las personas que aspiren a ejercer estos cargos. La Convocatoria deberá ser publicada en el Periódico Oficial del Estado, y cuando menos en uno de los diarios locales de mayor circulación en la Entidad;
