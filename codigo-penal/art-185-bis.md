@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE SEPTIEMBRE DE 2024)
+ARTÍCULO 185 BIS. Comete el delito a que se refiere este capítulo, quien utilice o incorpore a una persona menor de dieciocho años de edad, por cualquier forma o medio, para que participe en la comisión de un delito tipificado en la ley. Este delito se sancionará con una pena de diez a cuarenta años de prisión y multa de mil a cuatro mil días del valor de la unidad de medida y actualización, con independencia de las penas que resultarán aplicables por la comisión de otros delitos.

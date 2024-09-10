@@ -1,0 +1,4 @@
+P.O. 9 DE SEPTIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 1102.- SE ADICIONA AL TÍTULO CUARTO DE LA PARTE ESPECIAL, EL CAPÍTULO II BIS DENOMINADO "RECLUTAMIENTO DE MENORES PARA REALIZAR ACTIVIDADES DELICTIVAS" Y LOS ARTÍCULOS 185 BIS Y 185 TER QUE LO CONFORMAN, AL CÓDIGO PENAL DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
