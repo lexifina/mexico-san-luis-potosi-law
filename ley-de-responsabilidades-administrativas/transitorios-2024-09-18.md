@@ -1,0 +1,5 @@
+P.O. 18 DE SEPTIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DE "DECRETO 1118.- SE ADICIONA AL ARTÍCULO 23, LA FRACCIÓN V DE LA LEY ORGÁNICA DEL TRIBUNAL ESTATAL DE JUSTICIA ADMINISTRATIVA DE SAN LUIS POTOSÍ. SE REFORMA EL ARTÍCULO 216, DE LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS PARA EL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ. SE REFORMAN LOS ARTÍCULOS 150, 151 Y 152 SU FRACCIÓN II, DEL CÓDIGO PROCESAL ADMINISTRATIVO PARA EL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Los procedimientos previstos en la Ley de Responsabilidades Administrativas para el Estado y Municipios de San Luis Potosí, que se encuentren pendientes de resolución ante el Tribunal Estatal de Justicia Administrativa de San Luis Potosí, a la entrada en vigor del presente Decreto, se substanciarán y resolverán conforme a las disposiciones vigentes al momento de su inicio.
+TERCERO. Se derogan todas las disposiciones que se opongan al presente Decreto.
