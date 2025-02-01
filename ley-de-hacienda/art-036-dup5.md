@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2024)
-ARTICULO 36 OCTADECIES. Exenciones: Quedan exentas las ventas al por mayor destinadas a distribución y las bebidas con contenido alcohólico menor al 2%.
+(REFORMADO, P.O. 31 DE ENERO DE 2025)
+ARTICULO 36 OCTADECIES. Exenciones: Se exceptúan aquellas bebidas alcohólicas cuyo gravamen se encuentra expresamente reservado a la Federación, en términos del artículo 73, fracción XXIX, numeral 5, incisos e) y g), de la Constitución Política de los Estados Unidos Mexicanos.
