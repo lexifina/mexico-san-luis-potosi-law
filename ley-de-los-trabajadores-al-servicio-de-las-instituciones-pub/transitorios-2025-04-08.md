@@ -1,0 +1,5 @@
+P.O. 8 DE ABRIL DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0184.- SE REFORMAN LAS FRACCIONES XV Y XVI DEL ARTÍCULO 51; Y SE ADICIONA LA FRACCIÓN XVII AL ARTÍCULO 51, DE LA LEY DE LOS TRABAJADORES AL SERVICIO DE LAS INSTITUCIONES PÚBLICAS DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Las instituciones públicas del Estado y los Municipios contarán con un plazo de noventa días naturales a la entrada en vigor de este Decreto, para armonizar y actualizar sus Reglamentos y normatividad interna para promover, respetar y garantizar los periodos obligatorios de reposo durante la jornada laboral, así como el derecho de las personas trabajadoras para usar asientos o sillas con respaldo durante los periodos de descanso, de acuerdo a la propia naturaleza del cargo, puesto, comisión o funciones.
+TERCERO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
