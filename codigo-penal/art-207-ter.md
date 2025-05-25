@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 22 DE MAYO DE 2025)
+ARTÍCULO 207 TER. Comete el delito de violencia vicaria, el hombre que dolosamente cause daño por sí o por interpósita persona a la mujer con la que mantenga o haya mantenido una relación de parentesco por consanguinidad, afinidad, concubinato, convivencia o matrimonio, utilizando como medio para causar ese daño a las hijas o hijos de la víctima, pudiendo generar también a estos últimos un daño físico y/o psicoemocional.
+Este delito se sancionará con una pena de dos a ocho años de prisión y sanción pecuniaria de ciento cuarenta a doscientas unidades de medida de actualización.
+Asimismo, la persona juzgadora podrá imponer la pérdida de la patria potestad o custodia, de los derechos hereditarios y pensión alimenticia, prohibición de ir a un lugar determinado, además se le condenará a participar en servicios reeducativos integrales y tratamiento psicológico, sin exceder del tiempo impuesto en prisión.
+La pena prevista en este artículo se aumentará hasta en una tercera parte a quien lo cometa a través de interpósita persona.
