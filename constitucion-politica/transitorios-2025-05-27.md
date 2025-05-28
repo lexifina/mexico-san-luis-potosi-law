@@ -1,0 +1,7 @@
+P.O. 27 DE MAYO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0205.- QUE REFORMA EL ARTÍCULO 16 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSÍ, EN MATERIA DE INTERRUPCIÓN LEGAL DEL EMBARAZO, Y ADICIONA LOS ARTÍCULOS 58 BIS Y 58 TER A LA LEY DE SALUD DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Los ayuntamientos tendrán un plazo no mayor de dos meses para pronunciarse a favor o en contra de la reforma y adición que les es enviada por el Congreso del Estado; este plazo comenzará a partir de la recepción de la misma. En el entendido que, de no pronunciarse en el plazo estipulado, se les tendrá por conformes con los términos y, por tanto, aprobadas las adiciones y reformas enviadas por el Congreso del Estado.
+TERCERO. Las autoridades de salud deberán garantizar el acceso universal y gratuito a los servicios de interrupción legal del embarazo, en los términos establecidos por esta reforma constitucional, en coordinación y colaboración con profesionales de la salud, con plena observancia de los derechos humanos.
+CUARTO. A partir de la entrada en vigor del presente Decreto, las instituciones de salud pública, contarán con un plazo de sesenta días naturales para expedir o adecuar sus reglamentos, lineamientos y protocolos en materia de interrupción legal del embarazo.
+QUINTO. Se derogan las disposiciones que se contravengan al presente Decreto.
