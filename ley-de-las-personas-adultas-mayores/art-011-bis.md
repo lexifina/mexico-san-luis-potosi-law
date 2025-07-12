@@ -6,9 +6,11 @@ I. Satisfacer sus necesidades y cuidarlos en su condición de personas adultas m
 II. Fomentar la convivencia familiar cotidiana, donde la persona adulta mayor participe activamente, y promover al mismo tiempo los valores que incidan en sus necesidades afectivas, de protección y de apoyo;
 (REFORMADA, P.O. 13 DE SEPTIEMBRE DE 2021)
 III. Evitar actos de discriminación, abuso, explotación, aislamiento, violencia y actos jurídicos que pongan en riesgo la persona, bienes y derechos del adulto mayor;
-(ADICIONADA, P.O. 13 DE SEPTIEMBRE DE 2021)
-IV. Otorgar alimentos de conformidad con lo establecido en el Código Familiar para el Estado de San Luis Potosí, y
-(ADICIONADA, P.O. 13 DE SEPTIEMBRE DE 2021)
-V. Atender sus necesidades psicoemocionales cuando el adulto mayor se encuentre en alguna institución pública o privada, casa hogar, albergue, residencia de día o cualquier otro centro de atención a las personas adultas mayores a efecto de mantener los lazos familiares.
+(REFORMADA, P.O. 11 DE JULIO DE 2025)
+IV. Otorgar alimentos de conformidad con lo establecido en el Código Familiar para el Estado de San Luis Potosí;
+(REFORMADA, P.O. 11 DE JULIO DE 2025)
+V. Atender sus necesidades psicoemocionales cuando el adulto mayor se encuentre en alguna institución pública o privada, casa hogar, albergue, residencia de día o cualquier otro centro de atención a las personas adultas mayores a efecto de mantener los lazos familiares, y
+(ADICIONADA, P.O. 11 DE JULIO DE 2025)
+VI. Fomentar y promover de forma activa, la observancia y la práctica de los derechos contenidos en esta y en otras leyes aplicables, así como garantizar el respeto a la libertad en la toma de decisiones de las personas adultas mayores.
 CAPITULO II
 Consejo Interinstitucional Gerontológico
