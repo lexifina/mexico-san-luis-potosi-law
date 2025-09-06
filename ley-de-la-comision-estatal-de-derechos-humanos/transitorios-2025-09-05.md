@@ -1,0 +1,6 @@
+P.O. 5 DE SEPTIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0250.- QUE REFORMA LOS ARTÍCULOS 26, 27, 54 Y REALIZA ADICIÓN A LOS ARTÍCULOS 27 Y 63, DE LA LEY DE LA COMISIÓN ESTATAL DE DERECHOS HUMANOS DEL ESTADO DE SAN LUIS POTOSÍ".]
+Primero. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+Segundo. La Comisión Estatal de Derechos Humanos tendrá un plazo de 90 días naturales contados a partir de la entrada en vigor del presente decreto para realizar las adecuaciones a su reglamento interno en materia del Programa de Visitas Periódicas y Regulares del Sistema Penitenciario y de Reinserción Social del Estado y de las barandillas de los Municipios.
+Tercero. Una vez entrado en vigor el presente Decreto, la Comisión Estatal de Derechos Humanos tendrá un plazo de 45 días naturales para realizar las adecuaciones a su Reglamento Interno sobre las Visitadurías Generales en materia de pueblos y comunidades indígenas; personas privadas de su libertad en los centros penitenciarios del Estado y de las personas en situación de migración.
+Cuarto. Se derogan todas las disposiciones que contravengan lo dispuesto en el presente Decreto.
