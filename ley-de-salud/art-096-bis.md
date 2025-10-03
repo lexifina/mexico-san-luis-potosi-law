@@ -9,7 +9,8 @@ VI. Participar activamente en el diseño y ejecución de nuevos modelos de preve
 VII. Asegurar que en la prestación de los servicios del sector salud sea respetada la dignidad, libertad y los derechos humanos de las personas;
 VIII. Capacitar al personal del sector salud, con la finalidad de que detecten la violencia contra las mujeres;
 IX. Apoyar a las autoridades encargadas de efectuar investigaciones en materia de violencia contra las mujeres;
-X. Elaborar un expediente de la víctima que contenga datos desagregados por edad y sexo, tipo de violencia que sufre y todos aquéllos que lleven a atender debidamente a los grupos vulnerables y a llevar un registro, y
+(REFORMADA, P.O. 2 DE OCTUBRE DE 2025)
+X. Elaborar un expediente de la víctima que contenga datos desagregados por edad y sexo, tipo de violencia que sufre y todos aquéllos que lleven a atender debidamente a los grupos de atención prioritaria y a llevar un registro, y
 XI. Las demás previstas para el cumplimiento de la presente Ley.
 CAPITULO IV
 Efectos del Ambiente en la Salud
