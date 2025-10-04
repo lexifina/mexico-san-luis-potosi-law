@@ -1,0 +1,4 @@
+P.O. 3 DE OCTUBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0269.- QUE REFORMA LOS ARTÍCULOS 57, 80 Y 93; SE REALIZA ADICIÓN AL ARTÍCULO 80, DE Y A LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSÍ".]
+PRIMERO. Toda vez que, tratándose de reformas o adiciones ordenadas por la Constitución Política de los Estados Unidos Mexicanos, que deban constar en la presente Constitución, únicamente se requerirá la aprobación de cuando menos las dos terceras partes del número total de los diputados, para que éstas formen parte de la misma, este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis"; de conformidad con el último párrafo del artículo 138 de la Constitución Política del Estado Libre y Soberano de San Luis Potosí.
+SEGUNDO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
