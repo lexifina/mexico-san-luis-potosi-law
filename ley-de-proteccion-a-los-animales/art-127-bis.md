@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 16 DE OCTUBRE DE 2025.
+ARTÍCULO 127 BIS. Toda persona que incurra en conductas de crueldad, maltrato, daño o tortura contra uno o más animales, estará obligada a reparar el daño ocasionado. Esta reparación incluirá, según corresponda, la atención médica veterinaria, el suministro o pago de medicamentos, tratamientos, intervenciones quirúrgicas, rehabilitación, albergue temporal o definitivo, así como cualquier otra necesidad que determine la autoridad competente en beneficio del animal afectado.
+Lo anterior será sin perjuicio de las sanciones administrativas previstas en la presente Ley ni de las penas contempladas en el Código Penal para el Estado de San Luis Potosí.
