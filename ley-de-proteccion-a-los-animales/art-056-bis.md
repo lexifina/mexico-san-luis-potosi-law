@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 16 DE OCTUBRE DE 2025)
+ARTÍCULO 56 Bis. El espacio mínimo por animal para venta, debe contemplarse según la especie, peso, talla y altura para garantizar su protección y cuidado.
+En la venta se debe privilegiar la que se pueda realizar a través de medios remotos o mediante la utilización de herramientas tecnológicas que eviten el contacto físico directo entre el animal para venta y el público interesado en su adquisición, siempre y cuando se cumpla con la normatividad federal y local en materia de protección, cuidado y trato digno y respetuoso a los animales.
+Asimismo, cuando la exhibición de animales tenga como finalidad la venta como mascota o animal de compañía, también se privilegiará la que se pueda realizar a través de medios remotos o mediante la utilización de herramientas tecnológicas que eviten el contacto físico directo entre el ejemplar y el público interesado en su adquisición.
