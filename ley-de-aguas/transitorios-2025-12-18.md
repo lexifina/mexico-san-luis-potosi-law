@@ -1,0 +1,6 @@
+P.O. 18 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0329.- QUE REFORMA EL ARTÍCULO 76; Y SE ADICIONA EL ARTÍCULO 76 BIS, DE LA LEY DE AGUAS PARA EL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. Este Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones legales que se opongan al presente Decreto.
+TERCERO. Las acciones de planeación, programación y presupuestación en materia de tratamiento de sus aguas residuales previo a su descarga a sus cuerpos receptores, que prevé el párrafo segundo del artículo 76 Bis de este Decreto, entrarán en vigencia en enero de 2027, para tal efecto, se deberán hacer todas las modificaciones a los instrumentos de planeación y programación municipal, así como las previsiones presupuestales, para que los municipios y organismos operadores puedan realizar esta obligación.
+CUARTO. Con base en las atribuciones previstas en el artículo 8° en sus fracciones III inciso b) y XXVII, de la Ley de Aguas para el Estado de San Luis Potosí, la Comisión Estatal del Agua, asesora y orientará a los municipios y organismos operadores, para que lleven a cabo las acciones de planeación, programación y presupuestación para la implementación del tratamiento de las aguas residuales previo a su descarga a los cuerpos receptores.
