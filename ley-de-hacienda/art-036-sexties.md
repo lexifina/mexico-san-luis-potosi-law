@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 7 DE JUNIO DE 2024)
-ARTICULO 36 SEXTIES. La base de este impuesto es la cuantía de carga contaminante de las emisiones directas gravadas que se realicen desde la o las instalaciones o fuentes fijas expresadas en toneladas.
+(REFORMADO PRIMER PÁRRAFO, P.O. 24 DE DICIEMBRE DE 2025)
+ARTICULO 36 SEXTIES. La base de este impuesto es la cuantía de carga contaminante de las emisiones directas gravadas que se realicen desde fuentes fijas expresadas en toneladas.
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)
 Para la determinación de la base gravable, el contribuyente realizará mediante medición o estimación directa de las emisiones que genere y, en su caso, se tomará como referencia el último Registro de Emisiones y Transferencias de Contaminantes (RETC) de la Secretaría del Medio Ambiente y Recursos Naturales del Gobierno Federal, así como de los reportes de emisiones presentados por las fuentes fijas de jurisdicción Estatal a través de la Cedula de Operación Anual (COA) a la Secretaría de Ecología y Gestión Ambiental.
 (ADICIONADO, P.O. 18 DE DICIEMBRE DE 2023)

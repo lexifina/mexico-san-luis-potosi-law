@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2025)
+ARTICULO 18 BIS.- Para efectos de su cobro mediante el procedimiento administrativo de ejecución, las sanciones pecuniarias firmes impuestas por autoridades administrativas del Poder Ejecutivo del Estado, distintas de la autoridad fiscal, tendrán el carácter de crédito fiscal, siempre que se satisfagan los requisitos siguientes:
+I. Que la sanción haya sido debidamente notificada al infractor conforme a las disposiciones aplicables y que la resolución que la imponga haya quedado firme;
+II. Que la autoridad administrativa que emitió la sanción remita a la Secretaría de Finanzas, dentro de los cinco días hábiles siguientes a que la misma haya quedado firme, la resolución correspondiente acompañada del expediente o documentación necesaria para su ejecución;
+III. Que el infractor no haya efectuado el pago dentro de los quince días hábiles, contados a partir de que la autoridad administrativa lo haya requerido;
+IV. Que la Secretaría de Finanzas, con base en la documentación remitida, emita la determinación del crédito fiscal correspondiente, únicamente para efectos de su cobro mediante el procedimiento administrativo de ejecución.
+Las sanciones pecuniarias a que se refiere este artículo no modificarán su naturaleza jurídica, conservando el carácter de sanciones administrativas impuestas por autoridad competente; sin embargo, serán exigibles en los términos del artículo 80 fracción III de este Código.
+La Secretaría de Finanzas establecerá las reglas administrativas necesarias para la recepción, registro y control de las sanciones pecuniarias a que se refiere este artículo.
