@@ -1,0 +1,3 @@
+P.O. 7 DE ENERO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO 0440.- QUE REFORMA LOS ARTÍCULOS 2°, 5°, 16; Y SE REALIZA ADICIÓN A LOS ARTÍCULOS 5° Y 16, DE LA LEY DE CENTROS DE EDUCACIÓN INICIAL Y CUIDADO INFANTIL DEL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ".]
+ÚNICO. El presente Decreto entrará en vigor el día de su publicación del (sic) el Periódico Oficial del Estado "Plan de San Luis".
