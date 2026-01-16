@@ -1,4 +1,3 @@
-(ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2025)
-ARTÍCULO 231 BIS. El delito de extorsión previsto en el presente capítulo se perseguirá de oficio.
+ARTÍCULO 231 BIS. (DEROGADO, P.O. 13 DE ENERO DE 2026)
 CAPÍTULO VII
 Daño en las Cosas
