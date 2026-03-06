@@ -4,8 +4,10 @@ ARTÍCULO 11 BIS. La familia de la persona adulta mayor deberá cumplir su funci
 I. Satisfacer sus necesidades y cuidarlos en su condición de personas adultas mayores, de enfermedad, o del estado de interdicción en el que se encuentren;
 (REFORMADA, P.O. 13 DE SEPTIEMBRE DE 2021)
 II. Fomentar la convivencia familiar cotidiana, donde la persona adulta mayor participe activamente, y promover al mismo tiempo los valores que incidan en sus necesidades afectivas, de protección y de apoyo;
-(REFORMADA, P.O. 13 DE SEPTIEMBRE DE 2021)
-III. Evitar actos de discriminación, abuso, explotación, aislamiento, violencia y actos jurídicos que pongan en riesgo la persona, bienes y derechos del adulto mayor;
+(REFORMADO PRIMER PÁRRAFO, P.O. 5 DE MARZO DE 2026)
+III. Evitar que cualquier persona, ya sea que forme parte de la familia o no, realice actos de discriminación, abuso, explotación, aislamiento, o conductas que tengan por efecto forzar, presionar o inducir a ejecutar actos de mendicidad, trabajos forzados o actividades que atenten contra su dignidad o su salud física o mental o cualquier tipo de violencia contra la persona adulta mayor, así como cualquier acción u omisión que implique riesgo, menoscabo o afectación a su integridad personal, dignidad, ingresos, bienes o patrimonio, tales como el despojo, la retención indebida de recursos, la suplantación de identidad o la celebración de actos jurídicos que vulneren sus derechos.
+(ADICIONADO, P.O. 5 DE MARZO DE 2026)
+Todo acto que configure alguna de estas conductas deberá denunciarse de inmediato ante la autoridad competente, quien deberá activar los mecanismos de protección, investigación y restitución de derechos que resulten procedentes;
 (REFORMADA, P.O. 11 DE JULIO DE 2025)
 IV. Otorgar alimentos de conformidad con lo establecido en el Código Familiar para el Estado de San Luis Potosí;
 (REFORMADA, P.O. 11 DE JULIO DE 2025)

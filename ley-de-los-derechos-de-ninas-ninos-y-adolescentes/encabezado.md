@@ -5,6 +5,6 @@ DECRETO 743
 La Sexagésima Primera Legislatura Constitucional del Estado Libre y Soberano de San Luis Potosí
 Decreta
 EXPOSICIÓN DE MOTIVOS
-[…]
+[...]
 ÚNICO. Se expide la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de San Luis Potosí, para quedar como sigue
 LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE SAN LUIS POTOSÍ
