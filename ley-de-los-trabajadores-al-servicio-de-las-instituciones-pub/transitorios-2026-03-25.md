@@ -1,0 +1,4 @@
+P.O. 25 DE MARZO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0492.- QUE ADICIONA EL ARTÍCULO 70 BIS, A LA LEY DE LOS TRABAJADORES AL SERVICIO DE LAS INSTITUCIONES PÚBLICAS DEL ESTADO DE SAN LUIS POTOSÍ; Y ADICIONA EL ARTÍCULO 63 BIS, A LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS PARA EL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ".]
+PRIMERO. El presente Decreto entrara´ en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones que se opongan a este Decreto.
