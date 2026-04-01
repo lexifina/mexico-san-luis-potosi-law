@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE MARZO DE 2026)
+ARTÍCULO 241 BIS. Cuando en los actos a que se refieren los artículos, 240, 240 BIS y 241 del presente Código, participe algún servidor público con atribuciones en materia ganadera, además de las sanciones a que se refiere el artículo anterior, se hará acreedor a la destitución de su cargo y se le inhabilitará para el ejercicio de empleos, cargos o comisiones en el servicio público, por un periodo de dos y hasta seis años.

@@ -1,0 +1,4 @@
+P.O. 31 DE MARZO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0499.- QUE REFORMA LOS ARTÍCULOS 5°, 6° Y 11, DE LA LEY DE FOMENTO PARA LA LECTURA Y EL LIBRO DEL ESTADO Y MUNICIPIOS DE SAN LUIS POTOSÍ".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Se derogan todas las disposiciones legales y reglamentarias que se opongan al contenido del presente Decreto.
