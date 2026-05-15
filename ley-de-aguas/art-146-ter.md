@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 14 DE MAYO DE 2026)
+ARTICULO 146 TER. Las fugas que se presenten en las instalaciones hidráulicas ubicadas al interior del predio serán responsabilidad de la o del propietario o de la o el poseedor del mismo, quien deberá realizar su reparación inmediata por conducto de la o del usuario o a través de quien legalmente corresponda.
+En consecuencia, la o el prestador de los servicios no será responsable por las fugas intradomiciliarias no detectadas o no atendidas oportunamente por la o el usuario, ni por los daños que éstas ocasionen a la construcción, edificaciones o bienes ubicados dentro del predio, aun cuando el medidor se encuentre instalado dentro de los límites del mismo.

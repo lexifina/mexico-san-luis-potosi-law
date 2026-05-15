@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 14 DE MAYO DE 2026)
+ARTICULO 146 BIS. Las fugas que se presenten en la red pública de distribución de agua potable o en el tramo comprendido hasta el punto de conexión ubicado en el límite exterior del predio del usuario, serán responsabilidad de la o del prestador de los servicios.
+En tales casos, la o el prestador deberá realizar la localización y reparación correspondiente, incluyendo la mano de obra, materiales y equipos necesarios, así como la reposición y reparación de pavimentos, banquetas u otros bienes de infraestructura pública que resulten afectados con motivo de los trabajos realizados.
