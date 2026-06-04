@@ -1,0 +1,8 @@
+P.O. 3 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0540.- QUE REFORMA LOS ARTÍCULOS 31, 32, 42, 48 Y 114; Y ADICIONA A LOS ARTÍCULOS 47, 57 Y 114 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE SAN LUIS POTOSÍ".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. Las reformas a los artículos 48 y 114 de la Constitución Política del Estado Libre y Soberano de San Luis Potosí, en materia de prohibición de reelección inmediata para diputaciones e integrantes de los ayuntamientos, serán aplicables para el proceso electoral constitucional local a celebrarse en 2030.
+Las personas que hayan resultado electas en el proceso electoral local 2024, conservarán el derecho de reelegirse en el proceso electoral a celebrarse en 2027, conforme a las disposiciones constitucionales y legales vigentes hasta antes de la entrada en vigor del presente Decreto.
+TERCERO. El Congreso del Estado deberá realizar las adecuaciones a la legislación secundaria en materia electoral que resulten necesarias para dar cumplimiento al presente Decreto, por lo menos noventa días antes de que inicie el proceso electoral en que vayan a aplicarse.
+CUARTO. Las reformas al párrafo tercero de la fracción XIII del artículo 47 y 114, de esta Constitución, respecto de la prohibición de nepotismo electoral de las personas candidatas a una diputación y ayuntamientos, será aplicable a partir del proceso electoral a celebrarse en 2030.
+QUINTO. Se derogan todas aquellas disposiciones que contravengan lo dispuesto en el presente Decreto.
