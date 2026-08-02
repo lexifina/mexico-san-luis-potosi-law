@@ -1,0 +1,6 @@
+P.O. 30 DE JULIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0582.- POR EL QUE SE DEROGA EL ARTÍCULO 187 TER, ASÍ COMO EL CAPÍTULO V DENOMINADO "USO INDEBIDO DE INTELIGENCIA ARTIFICIAL PARA PROVOCAR ALARMA SOCIAL", CON SUS ARTÍCULOS 272 BIS Y 272 TER, DEL TÍTULO DÉCIMO PRIMERO, DEL CÓDIGO PENAL DEL ESTADO".]
+PRIMERO. El presente Decreto entrará en vigor al día de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+SEGUNDO. La derogación prevista en el presente Decreto no limita la potestad del Congreso del Estado para continuar el análisis y, en su caso, desarrollar un marco jurídico integral en materia de inteligencia artificial.
+Para tal efecto, y con el fin de favorecer una nueva etapa de análisis legislativa sobre la regulación de la inteligencia artificial sustentada en parámetros de control de regularidad constitucional, el Congreso del Estado, en ejercicio de su potestad legislativa y con pleno respeto a los principios de Parlamento Abierto, propiciará la realización de mecanismos de deliberación plural, abierta, técnica y participativa, que permitan la intervención de instituciones académicas, especialistas, organismos públicos, organizaciones de la sociedad civil, sectores productivos y demás personas interesadas.
+TERCERO. Se derogan todas las disposiciones que se opongan al presente Decreto.
