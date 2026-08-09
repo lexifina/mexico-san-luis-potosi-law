@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 4 DE JUNIO DE 2026)
+ARTÍCULO 134 BIS. La publicidad educativa observará los principios de veracidad, verificabilidad, claridad, completitud, identificación de su carácter y ausencia de inducción al error, conforme a lo previsto en la legislación aplicable. Dichos principios deberán interpretarse en congruencia con las disposiciones federales en materia de accesibilidad universal, sin que ello implique la creación de obligaciones adicionales a las ya contempladas en la normativa federal vigente.
+Las instituciones educativas privadas estarán sujetas a la verificación estatal exclusivamente en materia educativa, en términos de los artículos, 7° y demás relativos de la Ley General de Educación. La supervisión en materia de protección al consumidor corresponde a la Federación, conforme a los artículos, 32 y 35 de la Ley Federal de Protección al Consumidor.
+En lo no previsto en esta Ley, será aplicable lo dispuesto por la Ley General de Educación y demás ordenamientos federales conducentes.
+Lo anterior se entenderá en concurrencia y sin perjuicio de las atribuciones exclusivas de la Federación ni de lo establecido en la Ley General de Educación.
