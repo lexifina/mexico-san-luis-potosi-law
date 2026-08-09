@@ -1,0 +1,3 @@
+P.O. 30 DE ABRIL DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO 0515.- QUE REFORMA EL ARTÍCULO 48, DE LA LEY DE EDUCACIÓN DEL ESTADO DE SAN LUIS POTOSÍ; Y REFORMA EL ARTÍCULO 25, DE LA LEY DE LAS PERSONAS ADULTAS MAYORES PARA EL ESTADO DE SAN LUIS POTOSÍ".]
+ÚNICO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado "Plan de San Luis".
