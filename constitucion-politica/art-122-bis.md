@@ -6,8 +6,26 @@ CAPÍTULO ÚNICO
 (ADICIONADO, P.O. 2 DE OCTUBRE DE 2017)
 ARTÍCULO 122 BIS. En San Luis Potosí todas las personas tienen derecho a la justicia penal, y el Estado deberá garantizar el acceso efectivo a ella.
 El Ministerio Público se organizará en una Fiscalía General del Estado, como órgano público dotado de personalidad jurídica y patrimonio propio; así como de autonomía presupuestal, técnica y de gestión.
-(REFORMADO, P.O. 19 DE DICIEMBRE DE 2024)
-La Fiscalía General del Estado estará a cargo del o de la Fiscal General del Estado, que durará en su encargo siete años, sin posibilidad de reelección y deberá cumplir los requisitos establecidos en el artículo 92 de esta Constitución, con excepción del voto ciudadano.
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 2 DE SEPTIEMBRE DE 2026)
+La Fiscalía General del Estado estará a cargo de la o el Fiscal General del Estado, quien durará en su encargo siete años, sin posibilidad de reelección. Para ocupar el cargo se requiere:
+(ADICIONADA, P.O. 2 DE SEPTIEMBRE DE 2026)
+I. Ser persona ciudadana mexicana por nacimiento, en pleno ejercicio de sus derechos civiles y políticos.
+(ADICIONADA, P.O. 2 DE SEPTIEMBRE DE 2026)
+II. Tener cuando menos treinta y cinco años de edad cumplidos el día de la designación.
+(ADICIONADA, P.O. 2 DE SEPTIEMBRE DE 2026)
+III. Contar con título profesional de licenciatura en Derecho, expedido legalmente, y cédula profesional con una antigüedad mínima de cinco años.
+(ADICIONADA [N. DE E. CON SUS INCISOS], P.O. 2 DE SEPTIEMBRE DE 2026)
+IV. No encontrarse en alguno de los siguientes supuestos:
+A. Haber sido sujeta o sujeto a sentencia condenatoria firme por delitos de violencia familiar o delitos contra las mujeres por razón de género.
+B. Haber sido sujeta o sujeto a sentencia condenatoria firme por delitos contra la libertad sexual, la seguridad sexual o el normal desarrollo psicosexual.
+C. Estar registrada o registrado en el padrón de personas deudoras alimentarias morosas.
+D. Haber sido sancionada o sancionado mediante resolución firme por la comisión de faltas administrativas graves, emitida por el Tribunal Estatal de Justicia Administrativa o por la autoridad competente en materia de responsabilidades administrativas, ni encontrarse en el registro de personas servidoras públicas inhabilitadas del Instituto de Fiscalización Superior del Estado o de su homólogo federal.
+(ADICIONADA, P.O. 2 DE SEPTIEMBRE DE 2026)
+V. Haber residido en el Estado durante los dos años anteriores al día de la designación.
+(ADICIONADA, P.O. 2 DE SEPTIEMBRE DE 2026)
+VI. Acreditar una trayectoria profesional mínima de cinco años en el ejercicio de la profesión jurídica, en actividades relacionadas con procuración de justicia, litigio, docencia, investigación jurídica, servicio público o asesoría legal.
+(ADICIONADA, P.O. 2 DE SEPTIEMBRE DE 2026)
+VII. No haber ocupado el cargo de Gobernadora o Gobernador, Diputada o Diputado local, o titular de Presidencia Municipal en el año inmediato anterior al día de la designación, ni haber sido dirigenta o dirigente de partido político en los tres años previos.
 (REFORMADO, P.O. 26 DE JUNIO DE 2026)
 Corresponde al Gobernador del Estado proponer al Congreso, al triple de personas para ocupar el cargo del Fiscal General del Estado, dentro de los cuales la Legislatura hará la elección en el término de treinta días y por el voto aprobatorio de las dos terceras partes de sus miembros presentes en la sesión correspondiente. Si vencido ese plazo no se hubiera hecho la elección, el titular del Ejecutivo procederá a hacer el nombramiento de entre las propuestas.
 En caso de que el Congreso rechace la propuesta, el Gobernador del Estado presentará una nueva terna en los términos del párrafo anterior; si esta segunda propuesta fuera rechazada, ocupará el cargo la persona que, dentro de la misma, designe el Gobernador del Estado.
