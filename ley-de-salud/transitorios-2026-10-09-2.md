@@ -1,0 +1,5 @@
+P.O. 9 DE OCTUBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 0614.- QUE REFORMA LA DENOMINACIÓN DEL CAPÍTULO II, DEL TITULO DECIMO, Y LOS ARTÍCULOS 142, 143, 144 Y 145; Y ADICIONA EL ARTÍCULO 145 BIS, DE LA LEY DE SALUD DEL ESTADO DE SAN LUIS POTOSÍ".]
+PRIMERO. El presente decreto entrará en vigor ciento ochenta días hábiles siguientes a su publicación en el Periódico Oficial del Estado "Plan de San Luis".
+A la entrada en vigor de este Decreto, se derogan todas las disposiciones que se opongan a la misma.
+SEGUNDO. Las erogaciones que se generen por la implementación del presente Decreto se cubrirán con cargo a los presupuestos de los ejecutores de gasto que intervengan en este, por lo que no se autorizarán ampliaciones de recursos en el presente ejercicio fiscal ni en años subsecuentes para tales efectos. Para ejercicios fiscales subsecuentes se deberán realizar las previsiones de recursos respectivas en los anteproyectos de presupuesto de los ejecutores de gasto que correspondan sin que se incremente su presupuesto regularizable de gasto de operación ni de servicios personales.
