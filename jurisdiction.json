@@ -1,0 +1,11 @@
+{
+  "path": "mx-slp",
+  "code": "MX-SLP",
+  "name": "San Luis Potosí",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-san-luis-potosi-law",
+  "build": "built: constitution, codes and laws (79 ordenamientos, 1491 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
